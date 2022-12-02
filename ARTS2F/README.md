@@ -1,6 +1,6 @@
 # ARTS 2F History of Art (Multicultural Arts in the U.S.)
 I took ARTS 2F History of Art (Multicultural Arts in the U.S.) in De Anza College during Summer 2022 (June 26 - Aug 5, 2022). This repo archived my work for this course.
-The professor is Constance Cole.
+My professor was Constance Cole.
 
 * Final Paper- [Review of Paintings in “Salman Toor: How Will I Know” Exhibit](https://github.com/FrankYFTang/FrankYungFongTangArt/blob/main/ARTS2F/ARTS2F%20Final%20papers%20Salman%20Toor.pdf), Aug 3, 2022, Frank Yung-fong Tang
 * Extra Credit Paper 1- [The “Bay Area Walls” Group Exhibition at SFMOMA](https://github.com/FrankYFTang/FrankYungFongTangArt/blob/main/ARTS2F/ARTS3F%20Extra%20Credit%201%20Assignment%20Group%20Exhibit.pdf), July 25, 2022, Frank Yung-fong Tang
