@@ -1,4 +1,4 @@
-# Art Related work From Frank Yung-Fong Tang
+# Art Related Works by Frank Yung-Fong Tang
 
 ## My Art Collections:
 * [Self Portraits](https://photos.app.goo.gl/fpPQ2N44MGyPmAmQ7)
