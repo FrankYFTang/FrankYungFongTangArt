@@ -27,3 +27,5 @@
 * ARTS 2C History of Art: Europe from the Baroque Period Through Impressionism TBW (Planned Winter 2023)
 * ARTS 2D History of Art: Europe and the United States from Post-Impressionism to the Present TBW (Planned Winter 2023)
 
+## Poems
+* [Chinese Poems](https://github.com/FrankYFTang/FrankYungFongTangArt/tree/main/ChinesePoems)
