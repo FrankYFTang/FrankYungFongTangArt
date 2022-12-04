@@ -4,7 +4,7 @@
 ![Self Portrait w Murphy](https://lh3.googleusercontent.com/pw/AL9nZEUZtAhfcgw2g9iRT_4qudztwiZrRR_E1y3qjS00_wgkSuyYVIj88gJVpouo2-tOVKLhbBWrc-Ug6yp20mKSfUmZTLKu9ikhdPt4N8RTyg2uxi1os-_LJHEs4hUzscyB5AX-ON4LiSD5izTMuIQkYtuVCw=h150-no)
 ![Self Portrait 1](https://lh3.googleusercontent.com/pw/AL9nZEUtSiB781aas12KeOulBbTMiOs0kJnATSl18g_CmBvFkXuI7HbXsngCurP7SbOyJ0JNgGJJSjBDxtgc6lG5dyLo0WcBjYlJza4ym5ioAijHtqEvYhhmbPIAgMWJFilgWg3Jwsme6RbzCHoDcPwJG0klOQ=h150-no)
 ![Self Portrait 2](https://lh3.googleusercontent.com/pw/AL9nZEVJnwKzZhKfrGPWoUZRlwmXb1tusavdwY7ki5DV0MsgG5_VSmcXieQe7SsUtxSaOjBe5Pn6-SYqKgt1qkuAT1loaIpb0FRuQWACOBiU3gxivr6vxfQBdjz0-ydFbnuA4YCxzrYzOa_LPj0frx0W3JVaEg=h150-no)
-![Self Portrait 3](https://lh3.googleusercontent.com/pw/AL9nZEXyfAFSXgWsAZT03EdwcZShwkjGmg6xzI0li50mVkdaHxrgqbdFKhSgzTsAGyFnzGPv-3GDrTuGDa0AHALzjdalgPuGS-ZO78xscWTMZ_i4VMkYOUzr1FTIwcV2ZBpFpsKR_n7T-mgp1RNaOTWz-K4nLw=h150-no)
+![Self Portrait 3](https://lh3.googleusercontent.com/pw/AL9nZEXyfAFSXgWsAZT03EdwcZShwkjGmg6xzI0li50mVkdaHxrgqbdFKhSgzTsAGyFnzGPv-3GDrTuGDa0AHALzjdalgPuGS-ZO78xscWTMZ_i4VMkYOUzr1FTIwcV2ZBpFpsKR_n7T-mgp1RNaOTWz-K4nLw=h151-no)
 
 * [Self Portraits](https://photos.app.goo.gl/fpPQ2N44MGyPmAmQ7)
 * [Paintings](https://photos.google.com/share/AF1QipNASVWrZrCqF6noxwyhVYz6pGCW2lXAIDEhbBiTAQ659TUvWfe2Ct-uWqIbH8Flng?key=LTl2U2U4NUprT1R6YWZvS1U0QmJsSHF5OU9uLXNR)
