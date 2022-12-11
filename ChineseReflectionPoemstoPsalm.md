@@ -1,4 +1,6 @@
 # 讀詩篇的中文回應詩 
+Copyright (c) 2016, Frank Yung-Fong Tang
+
 ## 對詩篇 114 的中文回應詩
 April 12, 2016
 
