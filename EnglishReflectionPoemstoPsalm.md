@@ -214,3 +214,27 @@ Nor doubters 				from the fountain of the Mercy.
 For the Shepherd leads 	the path of		His sheep,
 But 				the path of 	the sceptics 	lead to depression
 ```
+## Reflection Poem of Ecclesiastes 3:1-8
+Nov 7, 2016 
+
+The day before 2016 US Presidential Election
+
+To all Rule Keeping Christian
+```
+There is 		an appropriate day 	for everything. 
+And there is 	a day 			for all conditions ruled by Our Creator—
+A day to 	protect life			and 	a day to 	preserve freedom;
+A day to 	care for unborn 		and 	a day to 	respect free will.
+A day to 	embrace diversity		and 	a day to 	maintain natural value;
+A day to 	welcome the outcasts	and 	a day to	prevent intrusion.
+A day to 	secure the border		and 	a day to 	show grace to refugees;
+A day to 	safeguard our family	and 	a day to 	take risks to love mercy.
+A day to 	defend domestic jobs 	and 	a day to 	leverage foreign opportunities;
+A day to 	trade				and 	a day to 	enjoy the fruits of our own labor.
+A day to 	vocally campaign		and 	a day to 	rest in silence;
+A day to 	support			and 	a day to 	withdraw.
+A day for 	the establishment	and 	a day to 	write in;
+A day to 	cast vote			and 	a day to 	wait for the result.
+A day to 	volunteer			and 	a day to 	sit in the sideline;
+A day to	debate the politics	and 	a day for 	longing for His second coming.
+```
