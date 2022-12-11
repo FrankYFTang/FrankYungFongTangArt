@@ -75,3 +75,50 @@ that 		He 		may not despise 	your ethic, and
 For 			Lord’s Judgement & Kingdom	may soon 	befall.
 How peaceful 	is the one who 			conceals 	in the Almighty!
 ```
+
+## Reflection on Psalm 117 - 1
+April 2, 2016
+```
+Trust almighty God, all my friends;
+Depend on Him, all repentant sinners!
+For His mercy is prepared for us,
+And the grace of God endures forever.
+Trust almighty God!
+```
+## Reflection on Psalm 117 - 2
+April 6, 2016
+```
+Worship our God, everyone;
+Exalt Him, all who are depressed!
+For His power and sovereignty rules the world,
+And the might of Him is perpetual.
+Worship our God!
+```
+## Reflection on Psalm 117 - 3
+April 9, 2016
+```
+Remember our Creator, all creature;
+Engrave Him, every life!
+For His power and strength is what sustain us,
+And the force of the Creator fills the universe.
+Remember our Creator!
+```
+## Reflection on Psalm 117 - 4
+April 12, 2016
+```
+Rely on the Mighty One,  my soul;
+Cry to Him, my heart!
+For His strength and wisdom is prepared for us,
+And the timing of the Mighty One is always right.
+Rely on the Mighty One!
+```
+## Reflection on Psalm 117 - 5
+April 14, 2016
+```
+Sing to the Faithful One, The poor in spirit!
+Joy in His presence, those who mourn!
+For His blessing is beyond our imagination,
+And the promise of the Faithful One never fail.
+Sing to the Faithful One
+```
+
