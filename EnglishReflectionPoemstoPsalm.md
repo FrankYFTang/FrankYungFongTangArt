@@ -122,3 +122,66 @@ And the promise of the Faithful One never fail.
 Sing to the Faithful One
 ```
 
+## Reflection on Psalm 116
+April 7-9, 2016
+```
+I love my Savior, 
+because He understand 
+my pain and
+my struggle,
+Because He has whispered His words 
+to me,
+Therefore
+I shall pray to Him whenever in trouble
+My wicked temperament corroded me
+And my outrageous emotion sabotaged me
+I found regret and despair
+
+Then
+I prayed to Him Jesus my Sweet Savior:
+
+“O Jesus, I seek You, change me!“
+
+Mercy is my Savior, and grace;
+Yes, my Jesus is powerful.
+
+My Savior teaches the meek;
+I was depressed, and He revive me.
+Still in silent, O my heart,
+For my Sweet Jesus has made changes in you.
+For He has redeemed 
+my guilt from darkness,
+my errors from blindness,
+my faults from rage,
+I shall be honest in front of my Savior
+When I awake every morning
+
+I repented when I cried,
+
+“I am deeply regret.”
+
+I shout with my tears,
+
+“All my angers are sinful.”
+What shall I repay to my Savior
+For all His mercy given to me?
+I shall remember the road my Savior
+And follow His pathway toward the Cross.
+I shall determine to follow my Savior,
+Oh, may it be experienced by all God’s children. 
+Blessed by my Savior on the mountain
+is the meekness of His followers.
+O Savior, surely I am Your student,
+I am Your student, 
+the follower of Your grace,
+You have cleansed my sins,
+To You
+I shall be patient to others as You,
+And wait for the work of my Sweet Jesus
+I shall declare my trust in my Savior,
+Oh, may it be experienced by all God’s children. 
+Under the cover of my Savior’s blood,
+On the suffering of you, O Cross.
+Thank Sweet Savior!
+```
+I was depressed by my rage toward my loved one when I wrote this reflection poem. I am out of control of my emotions and blame my loved ones for something they did not deserve. I had no sensibility toward other’s feelings and frequently hurt others around me. I felt I am such a failure and hopeless to bless others close to me. I need the affirmation from God to show me His power and glory is greater than my sinful nature and ignorance and I will eventually be changed by Him to be a gentle and merciful person like Him.
