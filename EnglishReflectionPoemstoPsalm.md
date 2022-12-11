@@ -185,3 +185,32 @@ On the suffering of you, O Cross.
 Thank Sweet Savior!
 ```
 I was depressed by my rage toward my loved one when I wrote this reflection poem. I am out of control of my emotions and blame my loved ones for something they did not deserve. I had no sensibility toward other’s feelings and frequently hurt others around me. I felt I am such a failure and hopeless to bless others close to me. I need the affirmation from God to show me His power and glory is greater than my sinful nature and ignorance and I will eventually be changed by Him to be a gentle and merciful person like Him.
+
+## Reflection Poem of Psalm 1
+Oct 19, 2016
+
+My parents are very old. My stepfather is now 94. He grew up in Christian orphanage and has known the Lord since. My mom is 82. She is not a believer. She got a stroke in April and is right side paralyzed. They show me two different views of facing age and death.
+```
+How peaceful is the one who 
+does not 	climb 	in the hills	 	of the sceptics,
+Nor 		wonder 	in the bushes	of doubters,
+Nor 		rest 		in the valley 	of rebels!
+
+But his hope is 		in the promise 	of the Shepherd,
+And 				in His promise 	the one relax from dawn to dusk.
+
+He will be like 	a ram 	joyfully fed by plenty of grass,
+Which 	extends 	its horns 	in early spring
+And 		its wool 	does not shed;
+And 				in whatever he possesses, 	he contents.
+The sceptics are not so,
+
+But they are like 	bunnies 	that the rumble tremble away.
+
+Therefore 
+the sceptics will not 	drink	 	from the pond,
+Nor doubters 				from the fountain of the Mercy.
+
+For the Shepherd leads 	the path of		His sheep,
+But 				the path of 	the sceptics 	lead to depression
+```
