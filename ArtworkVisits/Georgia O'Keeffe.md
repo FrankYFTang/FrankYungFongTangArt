@@ -11,7 +11,7 @@
 * *A Black Bird with Snow-Covered Red Hills*, 1946. visited 2022/10/11
 * *Black White and Blue*, 1930. visited 2022/10/11
 * *Line and Curve*, 1927. visited 2022/10/11
-* *Shell N0. 1*, 1928. visited 2022/10/11
+* *Shell No. 1*, 1928. visited 2022/10/11
 
 ## The Whitney, NYC
 * *The Mountain, New Mexico*, 1931. visited 2022/12/17
@@ -19,6 +19,7 @@
 * *The White Calico Flower*, 1931. visited 2022/12/17
 * *It Was Blue And Green*, 1960. visited 2022/12/17
 * *Abstraction*, 1926. visited 2022/12/17
+* *Music, Pink and Blue No.2*, 1918. visited 2022/12/17
 * *Flower Abstraction*, 1924. visited 2022/12/17
 * *Black And White*, 1930. visited 2022/12/17
 
