@@ -1,5 +1,7 @@
 # Record of Viewing Georgia O'Keeffe Paintings
 
+[Images](https://photos.app.goo.gl/atHkaU11FBsJ3gaB6)
+
 ## Cantor Arts Center at Stanford University
 
 * *Seaweed*, 1927. visited 2022/12/17
