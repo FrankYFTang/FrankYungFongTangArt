@@ -20,6 +20,7 @@
 * *It Was Blue And Green*, 1960. visited 2022/12/17
 * *Abstraction*, 1926. visited 2022/12/17
 * *Flower Abstraction*, 1924. visited 2022/12/17
+* *Black And White*, 1930. visited 2022/12/17
 
 ## MoMA, NYC
 * *Lake George, Coat and Red*, 1919. visited 2022/10/18
