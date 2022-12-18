@@ -5,6 +5,9 @@
 ## National Gallery of Art, DC
 * *Mountains and Sea*, 1952. visited 2022/10/11
 
+## MoMA, NYC
+* *Jacob's Ladder*, 1957. visited 2022/10/18
+
 ## Anderson Collection at Stanford University
 * *Approach*, 1962. visited 2022/11/26
 
