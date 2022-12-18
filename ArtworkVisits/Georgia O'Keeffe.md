@@ -7,11 +7,15 @@
 * *Seaweed*, 1927. visited 2022/12/17
 * *Still Life: Red Pears and Figs*, 1923. visited 2022/12/17
 
+## National Portrait Gallery, DC
+* *Yellow Calla*, 1926. visited 2022/10/10
+
 ## National Gallery of Art, DC
 * *Jack-in-the-Pulpit No. 6*, 1930. visited 2022/10/11
 * *A Black Bird with Snow-Covered Red Hills*, 1946. visited 2022/10/11
 * *Black White and Blue*, 1930. visited 2022/10/11
 * *Line and Curve*, 1927. visited 2022/10/11
+* *Shell N0. 1*, 1928. visited 2022/10/11
 
 ## The Whitney, NYC
 * *The Mountain, New Mexico*, 1931. visited 2022/12/17
