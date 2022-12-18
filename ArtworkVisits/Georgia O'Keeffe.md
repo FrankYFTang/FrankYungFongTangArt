@@ -1,4 +1,4 @@
-# Visiting Painting by Georgia O'Keeffe
+# Record of Viewing Georgia O'Keeffe Paintings
 
 ## Cantor Arts Center at Stanford University
 
