@@ -2,10 +2,6 @@
 
 [Images](https://photos.app.goo.gl/atHkaU11FBsJ3gaB6)
 
-## Cantor Arts Center at Stanford University
-
-* *Seaweed*, 1927. visited 2022/12/17
-* *Still Life: Red Pears and Figs*, 1923. visited 2022/12/17
 
 ## National Portrait Gallery, DC
 * *Yellow Calla*, 1926. visited 2022/10/10
@@ -27,3 +23,8 @@
 
 ## MoMA, NYC
 * *Lake George, Coat and Red*, 1919. visited 2022/10/18
+
+## Cantor Arts Center at Stanford University
+
+* *Seaweed*, 1927. visited 2022/12/17
+* *Still Life: Red Pears and Figs*, 1923. visited 2022/12/17
