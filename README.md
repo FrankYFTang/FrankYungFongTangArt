@@ -33,4 +33,5 @@
 ## Poems
 * [Chinese Poems / 中文五言及七言詩 ](https://github.com/FrankYFTang/FrankYungFongTangArt/tree/main/ChinesePoems)
 * [Chinese Reflection Poems to Psalm / 中文詩篇回應詩](ChineseReflectionPoemstoPsalm.md)
+* [Chinese New Poems / 中文新詩 ](https://github.com/FrankYFTang/FrankYungFongTangArt/tree/main/ChineseNewPoems)
 * [English Reflection Poems](EnglishReflectionPoemstoPsalm.md)
