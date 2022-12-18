@@ -31,6 +31,6 @@
 * ARTS 2D History of Art: Europe and the United States from Post-Impressionism to the Present TBW (Planned Winter 2023)
 
 ## Poems
-* [Chinese Poems](https://github.com/FrankYFTang/FrankYungFongTangArt/tree/main/ChinesePoems)
-* [Chinese Reflection Poems to Psalm](ChineseReflectionPoemstoPsalm.md)
+* [Chinese Poems / 中文五言及七言詩 ](https://github.com/FrankYFTang/FrankYungFongTangArt/tree/main/ChinesePoems)
+* [Chinese Reflection Poems to Psalm / 中文詩篇回應詩](ChineseReflectionPoemstoPsalm.md)
 * [English Reflection Poems](EnglishReflectionPoemstoPsalm.md)
