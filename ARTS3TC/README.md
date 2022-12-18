@@ -5,6 +5,7 @@ My professor is Natasha Kleit.
 * **Journal 1**- [A Letter To Anita Lily Pollitzer From Georgia O’Keeffe, October 25, 2022, Frank Yung-fong Tang](https://drive.google.com/file/d/1XeZqhUDDUSgmiJOg_4FftAJ3f8XL0IBv/view?usp=sharing) 
   * **Artwork**: Georgia O’Keeffe, Radiator Building—Night, New York, Oil on canva, 1927
   * **Writing as**: The artist Georgia O’Keeffe, to her friend Anita Lily Pollitzer on December 3, 1927
+  * [Images of the Building](https://photos.app.goo.gl/HW9kscji8dsx8me26)
 * **Extra Credit Paper**- Museum Visit: Charlayne Hunter-Gault 1961 by Joseph Schwartz, Dec 16, 2022, Frank Yung-fong Tang
   * To be uploaded after receiving the grade
   * Based on my museum visit to National Portrait Gallery, Washington DC in Oct 2022.
