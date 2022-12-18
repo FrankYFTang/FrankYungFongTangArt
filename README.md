@@ -21,14 +21,14 @@
 ![Self Portrait 9](https://lh3.googleusercontent.com/pw/AL9nZEUgWSCG5P2PuNkv3R7WBnBBw9X9hMn2MLb10bT8Zq20c-Q9cOPksWxqYBimTE0WWcetZPTi9vSU9Es3WHwQH1nroYqfpuS1dl8MwtN4vuqrtG6wiy0u9UR4rHXMLAM9C6wYPMw3wUAoYp7ojagQJiQIlg=h150-no)
 
 ## Art Papers for Courses taken in De Anza College
-* [ARTS 2G History of Art: Arts of Asia](https://github.com/FrankYFTang/FrankYungFongTangArt/blob/main/ARTS2G/README.md) (During Summer 2022)
-* [ARTS 2F History of Art (Multicultural Arts in the U.S.)](https://github.com/FrankYFTang/FrankYungFongTangArt/tree/main/ARTS2F) (During Summer 2022)
-* [ARTS 2B History of Art: Europe During the Middle Ages and the Renaissance](https://github.com/FrankYFTang/FrankYungFongTangArt/tree/main/ARTS2B) (During Fall 2022)
-* [ARTS 3TC Women and Art](https://github.com/FrankYFTang/FrankYungFongTangArt/tree/main/ARTS3TC) (During Fall 2022)
-* ARTS 1B Architecture Past and Present TBW (Planned Winter 2023)
-* ARTS 2A History of Art: Europe from Prehistory through Early Christianity TBW (Planned Winter 2023)
-* ARTS 2C History of Art: Europe from the Baroque Period Through Impressionism TBW (Planned Winter 2023)
-* ARTS 2D History of Art: Europe and the United States from Post-Impressionism to the Present TBW (Planned Winter 2023)
+* [ARTS 2G History of Art: Arts of Asia](https://github.com/FrankYFTang/FrankYungFongTangArt/blob/main/ARTS2G/README.md) (Summer 2022)
+* [ARTS 2F History of Art (Multicultural Arts in the U.S.)](https://github.com/FrankYFTang/FrankYungFongTangArt/tree/main/ARTS2F) (Summer 2022)
+* [ARTS 2B History of Art: Europe During the Middle Ages and the Renaissance](https://github.com/FrankYFTang/FrankYungFongTangArt/tree/main/ARTS2B) (Fall 2022)
+* [ARTS 3TC Women and Art](https://github.com/FrankYFTang/FrankYungFongTangArt/tree/main/ARTS3TC) (Fall 2022)
+* ARTS 1B Architecture Past and Present TBW (Winter 2023)
+* ARTS 2A History of Art: Europe from Prehistory through Early Christianity TBW (Winter 2023)
+* ARTS 2C History of Art: Europe from the Baroque Period Through Impressionism TBW (Winter 2023)
+* ARTS 2D History of Art: Europe and the United States from Post-Impressionism to the Present TBW (Winter 2023)
 
 ## Poems
 * [Chinese Poems / 中文五言及七言詩 ](https://github.com/FrankYFTang/FrankYungFongTangArt/tree/main/ChinesePoems)
