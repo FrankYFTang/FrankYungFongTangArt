@@ -4,5 +4,6 @@
 
 ## The Whitney, NYC
 * *The Seasons*, 1957. visited 2022/10/17.
-* 
+
+## MoMA, NYC
 * *Gaea*, 1966. visited 2022/10/18.
