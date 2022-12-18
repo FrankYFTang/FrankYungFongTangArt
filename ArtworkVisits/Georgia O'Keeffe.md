@@ -26,4 +26,4 @@
 * *Flower Abstraction*, 1924. visited 2022/12/17
 
 ## MoMA, NYC
-* *Lake George, Coat and Red, 1919. visited 2022/10/18
+* *Lake George, Coat and Red*, 1919. visited 2022/10/18
