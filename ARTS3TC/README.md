@@ -9,4 +9,7 @@ My professor is Natasha Kleit.
 * **Extra Credit Paper**- Museum Visit: Charlayne Hunter-Gault 1961 by Joseph Schwartz, Dec 16, 2022, Frank Yung-fong Tang
   * To be uploaded after receiving the grade
   * Based on my museum visit to National Portrait Gallery, Washington DC in Oct 2022.
-* **Journal 2**- TBD
+* **Journal 2**- [Journal 2- Lee Krasner, The Seasons, oil and house paint on canvas, 1957](https://drive.google.com/drive/folders/1r2TfEg7YUfHjLJaVfaIWxaJMkABTwnDS)
+  * **Artwork**: The Seasons, The Seasons, Oil on canva, 1957
+  * [Images of the painting](https://photos.app.goo.gl/4WjVUTLRqRLPKRTQ8)
+
