@@ -19,6 +19,7 @@
 ![Self Portrait 7](https://lh3.googleusercontent.com/pw/AL9nZEXMQJrhu8EikgSOq2yc_7dObel5czADjz_9uVWDcEdBKgC9XKExImA4evsJIChJE_b0AqVcWwNc72OiSyMfMuH1QVTW3mBDh5vACH2wUZxppX1vPhyRvAc6pUxiT-e9y9yVnhGz7bq13n_cvDjSkGUiWw=h150-no)
 ![Self Portrait 8](https://lh3.googleusercontent.com/pw/AL9nZEUQn5ZnxwhcGZvx3r-IKc3NUVQH9di1JS0XhKLGtkAPBdNNbZnsF3vKl954aFdmj7W-cjQgspjD2vSZh_7WtwDCBha0P4pLEGgPDpzBOT8bDNkSWbjHyq7OPBG41gl61VX7v7IMBFfVr7AhmU1-Zn_EAA=h150-no)
 ![Self Portrait 9](https://lh3.googleusercontent.com/pw/AL9nZEUgWSCG5P2PuNkv3R7WBnBBw9X9hMn2MLb10bT8Zq20c-Q9cOPksWxqYBimTE0WWcetZPTi9vSU9Es3WHwQH1nroYqfpuS1dl8MwtN4vuqrtG6wiy0u9UR4rHXMLAM9C6wYPMw3wUAoYp7ojagQJiQIlg=h150-no)
+![Self Portrait 10](https://lh3.googleusercontent.com/pw/AL9nZEWKE6eGwOl-_GrnjLhdXG5WHdUDSoToZXJWxYFGN9iB27xHYf6pBH2jKDSCRmdO3M4MybJ8WbDVEELGYSeJ4iGwpmTorGOJ0Y_lVpHtkevCW_4xFpQfSTLRSP94uhtrF2mkbWw8p6H0mjtrR6A0W1SYjg=h150-no)
 
 ## Art Papers for Courses taken in De Anza College
 * [ARTS 2G History of Art: Arts of Asia](https://github.com/FrankYFTang/FrankYungFongTangArt/blob/main/ARTS2G/README.md) (Summer 2022)
