@@ -29,8 +29,9 @@
 * [ARTS 3TC Women and Art](https://github.com/FrankYFTang/FrankYungFongTangArt/tree/main/ARTS3TC) (Fall 2022)
 * ARTS 1B Architecture Past and Present TBW (Winter 2023)
 * ARTS 2A History of Art: Europe from Prehistory through Early Christianity TBW (Winter 2023)
-* ARTS 2C History of Art: Europe from the Baroque Period Through Impressionism TBW (Winter 2023)
 * ARTS 2D History of Art: Europe and the United States from Post-Impressionism to the Present TBW (Winter 2023)
+* [ARTS 8 Two-Dimensional Design](https://github.com/FrankYFTang/FrankYungFongTangArt/tree/main/ARTS8) (Winter 2023)
+* ARTS 2C History of Art: Europe from the Baroque Period Through Impressionism TBW (TBD)
 
 ## Poems
 * [Chinese Poems / 中文五言及七言詩 ](https://github.com/FrankYFTang/FrankYungFongTangArt/tree/main/ChinesePoems)
