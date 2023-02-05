@@ -22,7 +22,7 @@ Now I would like you to take your concept of that “house” and construct it (
 
 * [Preliminary sketches Submission (Due: 2023-01-16)](https://photos.app.goo.gl/GaXAG3LbT2NB3cN88)
 * [Work-in-Progress Submission (Due: 2023-01-20)](https://photos.app.goo.gl/7HpXhComA9fdYBk17)
-* [Final Painting Submission (Due: 2023-01-25)](https://photos.app.goo.gl/aEbFGsRM1TjM1XWE6
+* [Final Painting Submission (Due: 2023-01-25)](https://photos.app.goo.gl/aEbFGsRM1TjM1XWE6)
 * [Self-Evaluation (Due: 2023-01-25)](https://docs.google.com/document/d/1SnfBS7kpAKY3KCQf27SXDhxXotxBQZ6c8DDr4cDrkk4/edit?usp=sharing)
 * [All Images of Making The Work](https://photos.app.goo.gl/a33huVHrrbDkn7we8)
  
