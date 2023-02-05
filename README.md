@@ -11,7 +11,7 @@
 * [Flow Art](https://photos.google.com/share/AF1QipM7I3VPSA7HOh74caPEyLx5tryOoPBNifPdM7N6kjv4HZkQcdMqJxGdTajE-nIbOw?key=UzhpdWc0dndDOTlYb2U0LVZ5OTZLZFNfa3U4UEN3)
 * [Whiteboard Arts](https://photos.app.goo.gl/7DhSwzdcgqK6VtBw5)
 * [Sketch](https://photos.app.goo.gl/LLw52odJm9WzRwVm7)
-* Buildings
+* [Buildings](https://photos.app.goo.gl/fCVdJgXETNiWU3vf6)
 * Landscape
 
 
