@@ -11,6 +11,8 @@
 * [Flow Art](https://photos.google.com/share/AF1QipM7I3VPSA7HOh74caPEyLx5tryOoPBNifPdM7N6kjv4HZkQcdMqJxGdTajE-nIbOw?key=UzhpdWc0dndDOTlYb2U0LVZ5OTZLZFNfa3U4UEN3)
 * [Whiteboard Arts](https://photos.app.goo.gl/7DhSwzdcgqK6VtBw5)
 * [Sketch](https://photos.app.goo.gl/LLw52odJm9WzRwVm7)
+* Buildings
+* Landscape
 
 
 ![Self Portrait 4](https://lh3.googleusercontent.com/pw/AL9nZEUBwqw7-uMssdhhsxq7NBVwlxPa4wdKjcHjNeWiBr5ssrxlZq_I-TTRqhgpSaT5Xa5686dsQL0ExW6RpqN8drcDdZtG4MGLl4hUR0dFfVP47Sixd0mNN-TC1ueYW7qLcWr3A07ZDCAVW7BQVV8foV_Blw=h150-no)
