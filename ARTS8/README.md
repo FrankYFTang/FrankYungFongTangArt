@@ -52,6 +52,6 @@ You will need to look at these fonts on your computer for exact design.
 ### My Submission:
 
 * [Preliminary sketches Submission (Due: 2023-02-01)](https://photos.app.goo.gl/sz9ctmvXYBrEJJna7)
-* Work-in-Progress Submission (Due: 2023-02-08) 
+* [Work-in-Progress Submission (Due: 2023-02-08)](https://photos.app.goo.gl/KzwMRB2oMgZbvNAd7) 
 * Final Painting Submission (Due: 2023-02-15) 
 * [All Images of Making The Work](https://photos.app.goo.gl/5kixEoABfrPJWqx46)
