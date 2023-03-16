@@ -21,9 +21,10 @@ Now I would like you to take your concept of that “house” and construct it (
 ### My Submission:
 
 * [Preliminary sketches Submission (Due: 2023-01-16)](https://photos.app.goo.gl/GaXAG3LbT2NB3cN88)
+* [Film Review (Due: 2023-01-16)](project1-film-review.md)
 * [Work-in-Progress Submission (Due: 2023-01-20)](https://photos.app.goo.gl/7HpXhComA9fdYBk17)
 * [Final Painting Submission (Due: 2023-01-25)](https://photos.app.goo.gl/aEbFGsRM1TjM1XWE6)
-* [Self-Evaluation (Due: 2023-01-25)](https://docs.google.com/document/d/1SnfBS7kpAKY3KCQf27SXDhxXotxBQZ6c8DDr4cDrkk4/edit?usp=sharing)
+* [Self-Evaluation (Due: 2023-01-25)](project1-self-eval.md)
 * [All Images of Making The Work](https://photos.app.goo.gl/a33huVHrrbDkn7we8)
  
 ## Project Two - Information Wars: Words Matter
@@ -53,7 +54,8 @@ You will need to look at these fonts on your computer for exact design.
 ### My Submission:
 
 * [Preliminary sketches Submission (Due: 2023-02-01)](https://photos.app.goo.gl/sz9ctmvXYBrEJJna7)
+* [Film Review (Due: 2023-02-01)](project2-film-review.md)
 * [Work-in-Progress Submission (Due: 2023-02-08)](https://photos.app.goo.gl/KzwMRB2oMgZbvNAd7) 
 * Final Painting Submission (Due: 2023-02-15) 
-* Self-Evaluation (Due: 2023-02-15)
+* [Self-Evaluation (Due: 2023-02-155)](project2-self-eval.md)
 * [All Images of Making The Work](https://photos.app.goo.gl/5kixEoABfrPJWqx46)
