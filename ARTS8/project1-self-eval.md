@@ -1,7 +1,11 @@
-**Name**: Yungfong TANG (aka Frank TANG)		
+**Name**: Yungfong TANG (aka Frank TANG)
+
 **Due Date**: Jan 25, 2023
-**Class**: ARTS 8, Winter 2022, De Anza College		
+
+**Class**: ARTS 8, Winter 2022, De Anza College	
+
 **Professor**: Eugene Rodriguez
+
 **Title**: Project 1 “Houses in Motion” Self Evaluation
 
 It is fascinating to create two dimensional art in multiple frames to illustrate motion. One point linear perspective creates space but arrows, curls and dots in different scales are more effective to render dynamic flows of objects. 
