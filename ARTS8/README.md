@@ -56,6 +56,32 @@ You will need to look at these fonts on your computer for exact design.
 * [Preliminary sketches Submission (Due: 2023-02-01)](https://photos.app.goo.gl/sz9ctmvXYBrEJJna7)
 * [Film Review (Due: 2023-02-01)](project2-film-review.md)
 * [Work-in-Progress Submission (Due: 2023-02-08)](https://photos.app.goo.gl/KzwMRB2oMgZbvNAd7) 
-* Final Painting Submission (Due: 2023-02-15) 
-* [Self-Evaluation (Due: 2023-02-155)](project2-self-eval.md)
+* [Final Painting Submission (Due: 2023-02-15) ](https://photos.app.goo.gl/N3Hf61grGFtGED5w5)
+* [Self-Evaluation (Due: 2023-02-15)](project2-self-eval.md)
 * [All Images of Making The Work](https://photos.app.goo.gl/5kixEoABfrPJWqx46)
+
+
+
+## Project Three - 
+### Instruction from the professor:
+
+### My Submission:
+
+* [Preliminary sketches Submission (Due: 2023-02-22)](https://photos.app.goo.gl/4aMVTUR9H8axfDvC6)
+* [Film Review (Due: 2023-02-22)](project3-film-review.md)
+* [Work-in-Progress Submission (Due: 2023-03-01)](https://photos.app.goo.gl/ALgGWMyRvU39dKa4A) 
+* [Final Painting Submission (Due: 2023-03-08) ](https://photos.app.goo.gl/CADy2m3iW6TzWipb8)
+* [Self-Evaluation (Due: 2023-03-08)](project3-self-eval.md)
+* [All Images of Making The Work](https://photos.app.goo.gl/GDrznDLhf8HC4H5z9)
+
+## Project Four - 
+### Instruction from the professor:
+
+### My Submission:
+
+* [Preliminary sketches Submission (Due: 2023-03-15)](https://photos.app.goo.gl/3MqQuLrT1Ka8t8gu7)
+* [Film Review (Due: 2023-03-15)](project4-film-review.md)
+* Work-in-Progress Submission (Due: 2023-03-xx) 
+* Final Painting Submission (Due: 2023-03-xx) 
+* Self-Evaluation (Due: 2023-03-xx) 
+* [All Images of Making The Work](https://photos.app.goo.gl/tufzPj8UPWg9tmGr6) 
