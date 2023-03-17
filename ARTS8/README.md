@@ -62,8 +62,18 @@ You will need to look at these fonts on your computer for exact design.
 
 
 
-## Project Three - 
+## Project Three - GaGa 4 DaDa
 ### Instruction from the professor:
+1 – First I would like you to watch all three documentaries. Then I would like you write a one-page response. (See required technical specs below) What were one or two things you learned about the art of the early 20thcentury? What are your opinions of Hitler’s denunciation of modern art? And finally, what do think of Dada art?
+
+2 – Next, I would like you to think about the two tenets of Dada art as proposed by Jim Moir’s conversation between he and the artist, Cornelia Parker. One tenet is the political aim of Dada art and the mother is the absurd.
+
+3 – Now you are ready to begin preliminary sketches. Choose one of the two above tenets, the political or the absurd, for this project. I will demonstrate the absurd. You will create an image from two images from a newspaper, magazine or the internet. You will first collage these two images together, then simplify that image and finally paint it. As an option, you can choose a word to go with your idea. My idea will use the word, dumb, using a Dada-inspired aesthetic. I will surprise you with my collaged image in my PowerPoint Presentation.
+
+4 – For your materials, you will be using one sheet of Bristol board, sized at 14” x 17” and black acrylic paint. Your final painting will have a two-inch Bristol board frame. It can be a portrait or landscape format. This makes your image window 10” x 13”.
+
+You will need to paint your composition using the grey scale. You will use a total of nine values of paint starting with pure white and then light grey, medium grey, dark grey and finally pure black. There can be no white background. 
+
 
 ### My Submission:
 
@@ -74,9 +84,48 @@ You will need to look at these fonts on your computer for exact design.
 * [Self-Evaluation (Due: 2023-03-08)](project3-self-eval.md)
 * [All Images of Making The Work](https://photos.app.goo.gl/GDrznDLhf8HC4H5z9)
 
-## Project Four - 
+## Project Four - The Golden Age of Film Animation, 1928-1957
 ### Instruction from the professor:
 
+#### Materials: Acrylic paint on Bristol board
+#### Objectives: 
+1) To use key elements and principles of design in conjunction with the Grey Scale, in order to move the viewer through 2D space,
+2) To create a composition that draws conceptual and aesthetic inspiration from Film Animation 1928-1957,
+3) To define for yourself the connections between images and cultural values AND in particular how the climate crisis affects the world and the future of society
+#### Viewing:
+1) History of Animation, 2014, TRT-24:14
+https://www.youtube.com/watch?v=Sfzy05M-nzYLinks to an external site.
+
+2) How to Be a Good Ancestor, Roman Krznaric, 2020, TRT-7:05
+https://www.ted.com/talks/roman_krznaric_how_to_be_a_good_ancestor?language=en#t-399518Links to an external site.
+
+3) Lotte Reiniger: A Pioneer in Animation, 2020, TRT-5:18
+https://www.youtube.com/watch?v=YLE3T1cju2ULinks to an external site.
+
+4) Len Lye, Tusalava,1929, TRT-7:13
+https://aeon.co/videos/life-emerges-evolves-and-fights-for-supremacy-in-this-1929-avant-garde-classicLinks to an external site.
+
+5) Norman McLaren, Boogie Doodle, 1940, TRT-3:18
+https://www.youtube.com/watch?v=TgJ-yOhpYIMLinks to an external site.
+
+#### Process:
+1 – First I would like you to watch documentaries #1 and #2 as an introduction to the project. Then you will need to watch all three shorts on the three animators to choose your inspiration for the project. They are all very different so take your time to watch them. Next I would like you to write a one-page response. (See required technical specs below) What were one or two things you learned about the animation of the early 20thcentury? Why did you choose the animator you did for the project?
+
+2 – Preliminary sketches. Now that you have chosen one animator for inspiration you will need to decide on a concept concerning the global climate crisis. After watching the video, How To Be A Good Ancestor, what do you want to say about our predicament? Will you propose solutions such as flying cars that don’t use fossil fuels or will you depict a meeting between earthlings and other planetary lives?
+
+3 – You are creating a story board for a one-minute animated film. This is not the actual animation. This is the concept for your film. You would use this in your portfolio to communicate your idea and what happens.
+
+4 – You will have six equal frames to depict your action. The elements of design are important here such as shape (what kinds of shapes) and space (where does the action happen, top to bottom or left to right?). The principles of design are also important, balance, rhythm/movement and emphasis to name a few.
+
+5 – For your materials, you will be using one sheet of Bristol board, sized at 14” x 17” and black and white acrylic paint. Your final painting will have six equal frames measuring 4” in height and 5” in width. I will illustrate this in my PowerPoint Presentation for you to view. You will also write a brief description of the action below each frame. I will also have this illustrated in my PowerPoint Presentation. Neatness matters!
+
+6 – Once again you will use the grey scale to paint your composition. You will use a total of eleven values of paint starting with pure white and then light grey, medium grey, dark grey and finally pure black.
+
+* Tints - three values
+* Tones – three values
+* Shades – three values
+
+ 
 ### My Submission:
 
 * [Preliminary sketches Submission (Due: 2023-03-15)](https://photos.app.goo.gl/3MqQuLrT1Ka8t8gu7)
