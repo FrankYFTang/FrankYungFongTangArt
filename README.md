@@ -27,14 +27,14 @@
 ![Self Portrait 11](https://lh3.googleusercontent.com/pw/AL9nZEUi9e2gNXDDQgG3eDN2uyjQBnH-0jdFmE-BqK1Yjk0AmqDx1Nmdk5nIHUY-hl47VwGccNUarwCAG7brB5TcAmAeHz6fppsrsTwoxTFMwgIh3sLxoO_rXVR2OO5RvBsEHkD52yQil_Iy8N-5QuTraINcmg=h150-no)
 
 ## Art Papers and Art Work Submission for Courses taken in De Anza College
-* [ARTS 2G History of Art: Arts of Asia](https://github.com/FrankYFTang/FrankYungFongTangArt/blob/main/ARTS2G/README.md) (Summer 2022)
-* [ARTS 2F History of Art (Multicultural Arts in the U.S.)](https://github.com/FrankYFTang/FrankYungFongTangArt/tree/main/ARTS2F) (Summer 2022)
-* [ARTS 2B History of Art: Europe During the Middle Ages and the Renaissance](https://github.com/FrankYFTang/FrankYungFongTangArt/tree/main/ARTS2B) (Fall 2022)
-* [ARTS 3TC Women and Art](https://github.com/FrankYFTang/FrankYungFongTangArt/tree/main/ARTS3TC) (Fall 2022)
-* ARTS 1B Architecture Past and Present TBW (Winter 2023)
-* ARTS 2A History of Art: Europe from Prehistory through Early Christianity TBW (Winter 2023)
-* ARTS 2D History of Art: Europe and the United States from Post-Impressionism to the Present TBW (Winter 2023)
-* [ARTS 8 Two-Dimensional Design](https://github.com/FrankYFTang/FrankYungFongTangArt/tree/main/ARTS8) (Winter 2023)
+* [ARTS 2G History of Art: Arts of Asia](ARTS2G) (Summer 2022)
+* [ARTS 2F History of Art (Multicultural Arts in the U.S.)](ARTS2F) (Summer 2022)
+* [ARTS 2B History of Art: Europe During the Middle Ages and the Renaissance](ARTS2B) (Fall 2022)
+* [ARTS 3TC Women and Art](ARTS3TC) (Fall 2022)
+* [ARTS 1B Architecture Past and Present](ARTS1B) (Winter 2023)
+* [ARTS 2A History of Art: Europe from Prehistory through Early Christianity](ARTS2A) (Winter 2023)
+* [ARTS 2D History of Art: Europe and the United States from Post-Impressionism to the Present](ARTS2D) (Winter 2023)
+* [ARTS 8 Two-Dimensional Design](ARTS8) (Winter 2023)
 * ARTS 2C History of Art: Europe from the Baroque Period Through Impressionism TBW (TBD)
 
 ## Poems
