@@ -12,3 +12,5 @@
 * *Approach*, 1962. visited 2022/11/26
 
 ## Cantor Arts Center at Stanford University
+* *September Image*, 1963. visited 2023/4/1
+* *Stroke of High Tide II*, 1974. visited 2023/4/1
