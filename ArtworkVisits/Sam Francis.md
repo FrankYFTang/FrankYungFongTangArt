@@ -1,6 +1,6 @@
 # Record of Viewing Sam Francis Paintings
 
-[Images](https://photos.app.goo.gl/yDdgh7htDwqaHoK49)
+[Images](https://photos.app.goo.gl/3gh5gn5c6RPZVs1HA)
 
 ## Cantor Arts Center at Stanford University
 * *Spleen (Yellow)*, 1971. visited 2022/9/23
