@@ -1,6 +1,6 @@
 # Record of Viewing Chiura Obata Paintings
 
-[Images](https://photos.app.goo.gl/hDpovfhGw8qBjGBJ8)
+[Images](https://photos.app.goo.gl/Ym2EfYygX3xGm3KSA)
 
 ## The Whitney, NYC
 * *Upper Lyell Fork, near Lyell Glacier*, 1930. visited 2022/10/17
