@@ -132,5 +132,5 @@ https://www.youtube.com/watch?v=TgJ-yOhpYIMLinks to an external site.
 * [Film Review (Due: 2023-03-15)](project4-film-review.md)
 * [Work-in-Progress Submission (Due: 2023-03-22)](https://photos.app.goo.gl/hSKRyeiCHEwbRPXM9) 
 * [Final Painting Submission (Due: 2023-03-29)](https://photos.app.goo.gl/XwAQ6UWZ5xTc8PWq8) 
-* [Self-Evaluation (Due: 2023-03-29)](project3-self-eval.md) 
+* [Self-Evaluation (Due: 2023-03-29)](project4-self-eval.md) 
 * [All Images of Making The Work](https://photos.app.goo.gl/tufzPj8UPWg9tmGr6) 
