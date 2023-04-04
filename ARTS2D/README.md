@@ -4,3 +4,4 @@ I took ARTS 2D History of Art: Europe and the United States from Post-Impression
 * [Midterm](ARTS%202D%20Midterm.pdf)
 * **Research Paper**: [*William J. Clinton* (2006) by Chuck Close](ARTS2DFinalPaper.pdf)
   * Comments from professor: "Amazing paper, Frank! I thoroughly enjoy learning through students' papers, and after reading your analysis, I now feel inspired to include Chuck Close in my curriculum!"
+* [Final](ARTS%202D%20Final.pdf)
