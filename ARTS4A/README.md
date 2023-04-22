@@ -18,16 +18,16 @@ I took ARTS 4A Beginning Drawing in De Anza College during Spring 2023 (April 10
   * Drawing 8. Copying Self-Portrait, c. 1615, Gian Lorenzo Bernini (Roman 1598-1680)
   * Drawing 9. Copying Saint Sebald, c. 1510, Hans Sebald Beham (German 1500-1550)
   * Drawing 10. Copying 400% of Jackson on my 20 USD bill.
-* [Week 3 Assigment- Drawings of the Basic Shapes]
+* [Week 3 Assigment- Drawings of the Basic Shapes](https://photos.app.goo.gl/YC922EkNgkAXN9iv7)
   * **Instruction:** Please create a minimum of four drawings (eight would be optimal) of the basic shapes. Sphere, Cone, Cube, Cylinder
   * First image - Drawing of Cube, Cylinder, Cone, and Sphere by pencels.
   * Second image - Drawing of Cube, Cylinder, Cone, and Sphere by China Markers.
-* [Week 4 Assigment- Drawings of the Basic Shapes Using Cross Hatching and Mark Making]
+* [Week 4 Assigment- Drawings of the Basic Shapes Using Cross Hatching and Mark Making](https://photos.app.goo.gl/Xndo9SWjDNHiUNiK8)
   * **Instruction:** For this assignment you need to post/make drawings of each of the basic shapes using cross hatching technique. Using cross hatching make one drawing of each of these shapes, Sphere, Cone, Cube, Cylinder
   * Drawing 1 Drawing cube, cylinder, cone and sphere using cross hatching by Sharpies.
   * Drawing 2 Drawing cube, cylinder, cone and sphere using cross hatching by Graphite. 
   * Drawing 3 Drawing cube, cylinder, cone and sphere using cross hatching by whiteboard marker on whiteboard.
-* [Week 5 Assigment- One Point Perspective Project Depicting Rendered Basic Shapes]
+* [Week 5 Assigment- One Point Perspective Project Depicting Rendered Basic Shapes](https://photos.app.goo.gl/aRh2qXYr7YjPbq9w9)
   * **Instruction:** For this assignment you need to post/make drawings of each of the basic shapes using cross hatching technique. Using cross hatching make one drawing of each of these shapes, sphere, cone, cube, cylinder 
 * [Week 6 Assigment- Two Point Perspective Project Rendering Basic Shapes]
   * **Instruction:** The assignment is to make a two point perspective drawing of the basic shapes and then shade them in any media you like. You should attempt to include all four basic shapes, the cube, the sphere, the cone, and the cylinder.
