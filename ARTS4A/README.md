@@ -15,9 +15,9 @@ I took ARTS 4A Beginning Drawing in De Anza College during Spring 2023 (April 10
   * Drawing 5. Copying Young Girl, Antoine Watteau
   * Drawing 6. Copying Design for a Wall Décoration, 1640-1645, Jacob Jordaens (Flemish 1593-1678), pencil and watercolor pencil
   * Drawing 7. Coping An Oriental Ruler Seated on His Throne, c. 1495, Albrecht Durer (German 1471-152.8)
-  * Drawing 8. Copy of Self-Portrait, c. 1615, Gian Lorenzo Bernini (Roman 1598-1680)
-  * Drawing 9. Copy of Saint Sebald, c. 1510, Hans Sebald Beham (German 1500-1550)
-  * Drawing 10. Copy of 400% of Jackson on my 20 USD bill.
+  * Drawing 8. Copying Self-Portrait, c. 1615, Gian Lorenzo Bernini (Roman 1598-1680)
+  * Drawing 9. Copying Saint Sebald, c. 1510, Hans Sebald Beham (German 1500-1550)
+  * Drawing 10. Copying 400% of Jackson on my 20 USD bill.
 * [Week 3 Assigment- Drawings of the Basic Shapes]
   * **Instruction:** Please create a minimum of four drawings (eight would be optimal) of the basic shapes. Sphere, Cone, Cube, Cylinder
   * First image - Drawing of Cube, Cylinder, Cone, and Sphere by pencels.
