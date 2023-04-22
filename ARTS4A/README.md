@@ -31,25 +31,20 @@ I took ARTS 4A Beginning Drawing in De Anza College during Spring 2023 (April 10
   * **Instruction:** For this assignment you need to post/make drawings of each of the basic shapes using cross hatching technique. Using cross hatching make one drawing of each of these shapes, sphere, cone, cube, cylinder 
 * [Week 6 Assigment- Two Point Perspective Project Rendering Basic Shapes]
   * **Instruction:** The assignment is to make a two point perspective drawing of the basic shapes and then shade them in any media you like. You should attempt to include all four basic shapes, the cube, the sphere, the cone, and the cylinder.
-
+* [Week 7 Assigment]
+  * **Instruction:** 
 * [Week 8 Assigment- Still Life (Composition and Meaning)]
   * **Instruction:** In module #4 you learned how to render the basic shapes using hatch marks.  You will be using those skills for this section.  Please also refer to the readings that were provided last week. You will be rendering these still lifes with hatchmarks.  
     * For this assignment you need to post two drawings of still life. Please base these drawings on a still life that you have set up in your home.
     * Drawing #1 should be a single object (I suggest a piece of fruit.) You can use whatever medium you feel comfortable with, for example, magic marker, pen, charcoal, pencil, crayon etc. Please also post a photo of your still life, what your drawing is based on.
     * Drawing #2 three to five objects or pieces of fruit. You can use whatever medium you feel comfortable with, for example, charcoal, pencil, crayon etc. Please also post a photo of your still life, what your drawing is based on.
-
 * [Week 9 Assigment- Drawing the Head two views]
   * **Instruction:** For this assignment you need to post two drawings of the human head. Please base these drawings either on photographs or copying the drawings in the book by Andrew Loomis.
     * Drawing #1 should be a front view.  You can use whatever medium you feel comfortable with, for example, charcoal, pencil, crayon etc. Please also post a photo of what your drawing is based on.
     * Drawing #2 should be a profile view.  You can use whatever medium you feel comfortable with, for example, charcoal, pencil, crayon etc. Please also post a photo of what your drawing is based on.
-
 * [Week 10 Assigment- Drawing 5 Hands]
   * **Instruction:** For this assignment you need to post two drawings of the human head. Please base these drawings either on photographs or copying the drawings in the book by Andrew Loomis. Make 5 drawings of hands.  They can all be on the same page if you like.  You can use whatever medium you feel comfortable with, for example, charcoal, pencil, crayon etc. Please also post a photo of what your drawing is based on.
-
 * [Week 11 Assigment- Drawing 5 Figures]
   * **Instruction:** For this assignment you need to post five drawings of the human figure. Please base these drawings any of these options: on photographs or copying the drawings in the book by Andrew Loomis or copying old master drawings. Make 5 drawings of the full figure.  They can all be on the same page if you like.  You can use whatever medium you feel comfortable with, for example, charcoal, pencil, crayon etc. Please also post photos of what your drawings are based on.
-
-  
 * [Final Project]
   * **Instruction:** For this assignment you need to post one drawing in which you include two or more of the following elements, still life objects or props, a human figure, in an environment that shows the use of one or two point perspective. Please include a description of what the drawing means to you and what it portrays.
-
