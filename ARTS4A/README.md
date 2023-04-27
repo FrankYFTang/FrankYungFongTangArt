@@ -26,6 +26,7 @@ I took ARTS 4A Beginning Drawing in De Anza College during Spring 2023 (April 10
   * First image - Drawing of Cube, Cylinder, Cone, and Sphere by pencels.
   * Second image - Drawing of Cube, Cylinder, Cone, and Sphere by China Markers.
   * **Erly Feedback from Instructor:** "For the basic shapes, the ellipses on top of the cylinders are inaccurate, and on first appraisal things could be neater, better crafted and the steps in the shading could be more accurate. It looks like your missing some tones especially in the reflected or bounce light."
+* [Week 3 Exta Credit- Extra Credit: Extra Drawings of Basic Shapes](https://photos.app.goo.gl/BRG4M6UwcgFBvjkX7)
 
 * [Week 4 Assigment- Drawings of the Basic Shapes Using Cross Hatching and Mark Making](https://photos.app.goo.gl/Xndo9SWjDNHiUNiK8)
   * **Instruction:** For this assignment you need to post/make drawings of each of the basic shapes using cross hatching technique. Using cross hatching make one drawing of each of these shapes, Sphere, Cone, Cube, Cylinder
