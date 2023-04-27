@@ -35,7 +35,8 @@
 * [ARTS 2A History of Art: Europe from Prehistory through Early Christianity](ARTS2A) (Winter 2023)
 * [ARTS 2D History of Art: Europe and the United States from Post-Impressionism to the Present](ARTS2D) (Winter 2023)
 * [ARTS 8 Two-Dimensional Design](ARTS8) (Winter 2023)
-* ARTS 2C History of Art: Europe from the Baroque Period Through Impressionism TBW (TBD)
+* [ARTS 2C History of Art: Europe from the Baroque Period Through Impressionism](ARTS2C) (Spring 2023)
+* [ARTS 4A History of Art: Europe from the Baroque Period Through ImpressionismBeginning Drawing](ARTS4A) (Spring 2023)
 
 ## Poems
 * [Chinese Poems / 中文五言及七言詩 ](https://github.com/FrankYFTang/FrankYungFongTangArt/tree/main/ChinesePoems)
