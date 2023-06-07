@@ -3,7 +3,7 @@ I took ARTS 4A Beginning Drawing in De Anza College during Spring 2023 (April 10
 * [Week 1 Assigment- Old Master Copies Using the Envelope Method](week1.md) Score: A (10)
 * [Week 2 Assigment- Old Master Copy Using a Grid](week2.md) Score: A (10)
 * [Week 3 Assigment- Drawings of the Basic Shapes](week3.md) Score: A- (9.3)
-* [Week 3 Exta Credit- Extra Credit: Extra Drawings of Basic Shapes](week3extra.md) Score: A (10)
+* [Week 3 Exta Credit- Extra Drawings of Basic Shapes](week3extra.md) Score: A (10)
 * [Week 4 Assigment- Drawings of the Basic Shapes Using Cross Hatching and Mark Making](week4.md) Score: A- (9.3)
 * [Week 5 Assigment- One Point Perspective Project Depicting Rendered Basic Shapes](week5.md) Score: A- (9.3)
 * [Week 6 Assigment- Two Point Perspective Project Rendering Basic Shapes](week6.md) Score: A (10)
