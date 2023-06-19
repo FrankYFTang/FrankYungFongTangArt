@@ -4,6 +4,6 @@ I took ARTS 2C History of Art: Europe from the Baroque Period Through Impression
 * [Week 2 Writing](ARTS2CWeek2Writing.pdf)
   * **Prompt:** Utilizing Artemisia Gentileschi's painting of Judith Slaying Holofernes, compare it to Caravaggio's Judith Beheading Holofernes (see the last slide in Lecture 5). How are they both prime examples of the Italian Baroque style? How do they differ? One painting is by a female artist, the other by a man. Is it obvious which is which? Why, or why not? 
 * Midterm TBD
-* **Research Paper**:
+* **Research Paper**: [The Thinker / Le Penseur (1881) by Auguste Rodin](ARTS2CPaper.pdf)
   * Feedback from Professor: "Your paper is extraordinary. Your level of analysis and research are beyond impressive. You might want to consider a graduate degree in Art history!"
 * Final TBD
