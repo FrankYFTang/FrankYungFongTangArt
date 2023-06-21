@@ -8,4 +8,4 @@
 * Drawing 3 - Palms facing each other, Hands of my daughter, Compressed Charcoal
 * Drawing 4 - My right fist, Compressed Charcoal
 * Drawing 5 - Hands of a lady speaking with Microphone, Penciles, Water-soluble graphite pencils, and Makers
-**Feedback from Instrcutor:**
+* **Feedback from Instrcutor:** "Nice job! Accurate anatomy, good proportions, and well crafted."
