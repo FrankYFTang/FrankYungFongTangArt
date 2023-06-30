@@ -3,6 +3,8 @@
 * **Drawing #1** should be a front view. You can use whatever medium you feel comfortable with, for example, charcoal, pencil, crayon etc. Please also post a photo of what your drawing is based on.
 * **Drawing #2** should be a profile view. You can use whatever medium you feel comfortable with, for example, charcoal, pencil, crayon etc. Please also post a photo of what your drawing is based on.
 
-Submission
+[Submission](https://photos.app.goo.gl/N6B32SHWvKPzaJM98)
 
-**Feedback from Instrcutor:**
+* Drawing 1 - Front View, Self-Portrait, Pencil, Compressed Charcoal, Black Maker
+* Drawing 2 - Profile View of Steve Jobs. Pencile, Vine Charcoal and Compressed Charcoal.
+**Feedback from Instrcutor:** "Excellent proportions, very good use of shading and value structure. Nice job."
