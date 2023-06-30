@@ -7,4 +7,6 @@
 
 * Drawing 1 - Front View, Self-Portrait, Pencil, Compressed Charcoal, Black Maker
 * Drawing 2 - Profile View of Steve Jobs. Pencile, Vine Charcoal and Compressed Charcoal.
+
+  
 **Feedback from Instrcutor:** "Excellent proportions, very good use of shading and value structure. Nice job."
