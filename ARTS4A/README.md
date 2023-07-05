@@ -12,4 +12,4 @@ I took ARTS 4A Beginning Drawing in De Anza College during Spring 2023 (April 10
 * [Week 9 Assigment- Drawing the Head two views](week9.md) Score: A(10) {Mean: 8.85 Median: 9.3	10/10/8.6/6}
 * [Week 10 Assigment- Drawing 5 Hands](week10.md) Score: A(10) {Mean: 7.89 Median: 10	10/10/7.6/0}
 * [Week 11 Assigment- Drawing 5 Figures](week11.md) Score: A(10) {Mean: 8.49 Median: 10	10/10/10/0}
-* [Week 12 Final Project](week12.md)  Score: ?(?)
+* [Week 12 Final Project](week12.md)  Score: A(10) {Mean: 7.64 Median: 8.6 10/10/7.6/0}
