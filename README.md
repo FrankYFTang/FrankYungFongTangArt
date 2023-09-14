@@ -38,6 +38,8 @@
 * [ARTS 8 Two-Dimensional Design](ARTS8) (Winter 2023)
 * [ARTS 2C History of Art: Europe from the Baroque Period Through Impressionism](ARTS2C) (Spring 2023)
 * [ARTS 4A Beginning Drawing](ARTS4A) (Spring 2023)
+* [ARTS 2J History of Art: Arts of Africa, Oceania and Native North America](ARTS2J) (Fall 2023)
+* [ARTS 4B Intermediate Drawing](ARTS4B) (Fall 2023)
 
 ## Papers Submission for Other Courses took in De Anza College
 * [ECON 1 Principles of Macroeconomics](ECON1) (Spring 2013)
