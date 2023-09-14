@@ -27,7 +27,7 @@
 ![Self Portrait 10](https://lh3.googleusercontent.com/pw/AL9nZEWKE6eGwOl-_GrnjLhdXG5WHdUDSoToZXJWxYFGN9iB27xHYf6pBH2jKDSCRmdO3M4MybJ8WbDVEELGYSeJ4iGwpmTorGOJ0Y_lVpHtkevCW_4xFpQfSTLRSP94uhtrF2mkbWw8p6H0mjtrR6A0W1SYjg=h150-no)
 ![Self Portrait 11](https://lh3.googleusercontent.com/pw/AL9nZEUi9e2gNXDDQgG3eDN2uyjQBnH-0jdFmE-BqK1Yjk0AmqDx1Nmdk5nIHUY-hl47VwGccNUarwCAG7brB5TcAmAeHz6fppsrsTwoxTFMwgIh3sLxoO_rXVR2OO5RvBsEHkD52yQil_Iy8N-5QuTraINcmg=h150-no)
 
-## Art Papers and Art Work Submission for Courses taken in De Anza College
+## Art Papers and Art Work Submission for Courses took in De Anza College
 * [ARTS 2G History of Art: Arts of Asia](ARTS2G) (Summer 2022)
 * [ARTS 2F History of Art (Multicultural Arts in the U.S.)](ARTS2F) (Summer 2022)
 * [ARTS 2B History of Art: Europe During the Middle Ages and the Renaissance](ARTS2B) (Fall 2022)
@@ -38,6 +38,11 @@
 * [ARTS 8 Two-Dimensional Design](ARTS8) (Winter 2023)
 * [ARTS 2C History of Art: Europe from the Baroque Period Through Impressionism](ARTS2C) (Spring 2023)
 * [ARTS 4A Beginning Drawing](ARTS4A) (Spring 2023)
+
+## Papers Submission for Other Courses took in De Anza College
+* [ECON 1 Principles of Macroeconomics](ECON1) (Spring 2013)
+* [ECON 2 Principles of Microeconomics](ECON1) (Fall 2013)
+
 
 ## Poems
 * [Chinese Poems / 中文五言及七言詩 ](https://github.com/FrankYFTang/FrankYungFongTangArt/tree/main/ChinesePoems)
