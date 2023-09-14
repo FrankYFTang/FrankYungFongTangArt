@@ -41,7 +41,7 @@
 
 ## Papers Submission for Other Courses took in De Anza College
 * [ECON 1 Principles of Macroeconomics](ECON1) (Spring 2013)
-* [ECON 2 Principles of Microeconomics](ECON1) (Fall 2013)
+* [ECON 2 Principles of Microeconomics](ECON2) (Fall 2013)
 
 
 ## Poems
