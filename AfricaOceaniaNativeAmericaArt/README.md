@@ -6,7 +6,7 @@ This directory list some links of my photos to museum exhibit Arts of Africa, Oc
 * [Africa Arts @ Stanford](https://photos.app.goo.gl/S9jkUDQLQ6HmySVn9)
 
 ## Oceania Arts
-* Oceania Arts @ Stanford TBA
+* [Oceania Arts @ Stanford](https://photos.app.goo.gl/gKNrzmYmQknoPzpW8)
 * 
 ## Native America Arts
 * [Native American Museum, DC (2022-10-15)](https://photos.app.goo.gl/3kaV74RzEwgcXdFz5)
