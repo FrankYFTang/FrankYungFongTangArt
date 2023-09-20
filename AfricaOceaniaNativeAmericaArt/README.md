@@ -1,5 +1,5 @@
 
-This directory list some links of my photos to museum exhibit Arts of Africa, Oceania, and Native America
+This page lists some links of the photos I took from museums exhibiting Africa Art, Oceania Art, and Native America Art
 ## Africa Arts
 * [National Museum of African Art, DC (2022-10-13)](https://photos.app.goo.gl/nASLMfMz8mphLtY76)
 * [Interwined, Wangechi Mutu (born 1972), a Kenyan-born Artist, New Museuem, NYC](https://photos.app.goo.gl/JRSqBzhUFpmqej2m8)
