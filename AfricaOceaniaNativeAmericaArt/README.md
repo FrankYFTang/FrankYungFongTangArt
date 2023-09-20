@@ -7,6 +7,7 @@ This directory list some links of my photos to museum exhibit Arts of Africa, Oc
 
 ## Oceania Arts
 * [Oceania Arts @ Cantor Arts Center, Stanford University](https://photos.app.goo.gl/gKNrzmYmQknoPzpW8)
+* [Papua New Guinea Sculpture Garden @ Stanford University](https://photos.app.goo.gl/u4uq7gKx9Ykkdjtf7)
 * 
 ## Native America Arts
 * [Native American Museum, DC (2022-10-15)](https://photos.app.goo.gl/3kaV74RzEwgcXdFz5)
