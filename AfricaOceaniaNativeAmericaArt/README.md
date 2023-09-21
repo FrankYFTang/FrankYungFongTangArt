@@ -4,6 +4,7 @@ This page lists some links of the photos I took from museums exhibiting Africa A
 * [National Museum of African Art, DC (2022-10-13)](https://photos.app.goo.gl/nASLMfMz8mphLtY76)
 * [Interwined, Wangechi Mutu (born 1972), a Kenyan-born Artist, New Museuem, NYC](https://photos.app.goo.gl/JRSqBzhUFpmqej2m8)
 * [Africa Arts @ Cantor Arts Center, Stanford University](https://photos.app.goo.gl/S9jkUDQLQ6HmySVn9)
+* [DANIEL LIND-RAMOS El Viejo Griot @ New Museum, NYC - Afro-Taíno Art](https://photos.app.goo.gl/scEkkjxPxXiKgRQt5)
 
 ## Oceania Arts
 * [Oceania Arts @ Cantor Arts Center, Stanford University](https://photos.app.goo.gl/gKNrzmYmQknoPzpW8)
