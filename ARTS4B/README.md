@@ -38,5 +38,30 @@ I took ARTS 4B Intermediate Drawing in De Anza College during Fall 2023 (Septemb
     * Start coloring with chalk pastel ONE SQUARE AT A TIME. Blend different colors with fingers/Q-tips to achieve realistic skin tone. Match colors with image as much as you can, including the background
     * Spray-fix drawing when it’s done. Cover with a sheet of newsprint to protect the drawing
     * Make sure to submit both reference photo and chalk pastel drawing ⬇️
-    
+* **Exercise 4-Value Memory as Layered Imagery**
+  * **Materials:** Bristol paper (or water color paper, mixed media paper, board, etc.) taped picture plane, full page of 11X14''
+  * **Media:** open medium. Must include at least 3 layers of the following Please include a brief description of your work. You do not have to describe the memory if it's personal and you prefer not to. I do not want to make you feel uncomfortable but you can let the viewer know what emotions you aimed to express.
+  * **Using a minimum of three different layering techniques demonstrated**:
+    * dripping
+    * splatter
+    * stenciling
+    * collaging with cut-outs, photo, thread, map, sticker, etc. 
+    * hand-made marks
+    * image transferring
+  * Create a drawing that contains a minimum of three different layers that cross over each other at least 3 times, and communicates ideas associated with the concept of memory in some way or larger issues that can be related to memory. 
+  * The act of remembering is one of recalling previous experiences, of retaining and reviving impressions from the past. While these impressions are housed in the past, the act of remembering always occurs in the present as a reconstruction of the past. Because of this, memories are fluid things; perceptions that have a tendency to slip, blur, overlap or change over time as new experiences alter base perceptions. Personal memories are subjective, being created from highly individualistic viewpoints. People who experience the same event at the same time, may come away from that event with differing memories.
+  * Memories may be attached to somatic responses and sometimes possess a tangible quality. For example, memory has been known to trigger strong smells, emotions, and sounds. Using layering as a strategy in making imagery can be used to communicate ideas associated with memory, time and experience and emotion from the memory.
+  * The layers can be physical layers, as in adhering collaged elements, and/or drawn layers of imagery, or any combination of these. However, this layered image drawing must consist of at least 50% hand-made marks as opposed to collage, transfers, etc. NO SKETCHES. NOT THUMBNAILS. Work intuitively.
+  * To get a good grade, the work must go beyond a literal depiction of personal memories. Avoid cliché literal depiction of the actual event. Avoid decorative photo album approach. Think about the emotions and fragments from that event/memory. Engage with your internal thoughts and feelings in the process.
+* **Exercise 5-Value Spheres with Graphite & Colored Pencil**
+  * **Materials:** paint on Bristol
+  * Watch the demos BEFORE STARTING. Pay attention to the portion of paint when you mix colors. For example, when we mix green, we use very little blue but a lot of yellow
+  * Paint 12 colors on your color wheel following the diagram: 3 primary colors, 3 secondary colors and 6 tertiary colors. Label all the colors correctly on your color wheel.
+  * Add tints and shades in color wheel
+  * Paint a chart of mixing 1 pair of complementary 
+  * Paint a value scale of a warm color OR a cool color
+  * Extra credit : add a value scale of a color of the other temperature; mix and paint 1 cool brown and 1 warm brown
+  * For students who have taken ARTS 12-Design & Color, and have painted a color wheel before, you can submit the color wheel that you completed in that class but make sure you include the chart of mixing complementary colors
+  * Making comments in discussions takes up 5% of your grades. If you see many comments of one post, please move onto posts that have 0 or 1 comment
+
 [All the work](https://photos.app.goo.gl/VBVMUnEA2ZHA6MU49)
