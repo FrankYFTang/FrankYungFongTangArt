@@ -74,6 +74,9 @@ I took ARTS 4B Intermediate Drawing in De Anza College during Fall 2023 (Septemb
   * Making comments in discussions takes up 5% of your grades. If you see many comments of one post, please move onto posts that have 0 or 1 comment
 
 [All the work](https://photos.app.goo.gl/VBVMUnEA2ZHA6MU49)
+
+* **Extra Credit** (3) Make an extra collage for Exercise 4 and turn it into a series using the same materials (2pts) 
+  * [Work](https://photos.app.goo.gl/FHzpfrbdkL4W3PAU6)
 * **Assignment 4-Gouache Paint Thumbnails**
   * Think about composition, picture plane orientation, location of words and color scheme
   * I cut out several thing from magazine and developed four set of thumbnails.
