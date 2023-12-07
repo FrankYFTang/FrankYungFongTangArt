@@ -62,6 +62,7 @@ I took ARTS 4B Intermediate Drawing in De Anza College during Fall 2023 (Septemb
   * Memories may be attached to somatic responses and sometimes possess a tangible quality. For example, memory has been known to trigger strong smells, emotions, and sounds. Using layering as a strategy in making imagery can be used to communicate ideas associated with memory, time and experience and emotion from the memory.
   * The layers can be physical layers, as in adhering collaged elements, and/or drawn layers of imagery, or any combination of these. However, this layered image drawing must consist of at least 50% hand-made marks as opposed to collage, transfers, etc. NO SKETCHES. NOT THUMBNAILS. Work intuitively.
   * To get a good grade, the work must go beyond a literal depiction of personal memories. Avoid cliché literal depiction of the actual event. Avoid decorative photo album approach. Think about the emotions and fragments from that event/memory. Engage with your internal thoughts and feelings in the process.
+  * [Work](https://photos.google.com/album/AF1QipMkn4GJ6-wOdjmZsrLUbvh-OTtDtBjeHm6hnYxs)
 * **Exercise 5-Value Spheres with Graphite & Colored Pencil**
   * **Materials:** paint on Bristol
   * Watch the demos BEFORE STARTING. Pay attention to the portion of paint when you mix colors. For example, when we mix green, we use very little blue but a lot of yellow
