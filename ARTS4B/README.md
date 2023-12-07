@@ -38,6 +38,7 @@ I took ARTS 4B Intermediate Drawing in De Anza College during Fall 2023 (Septemb
     * Start coloring with chalk pastel ONE SQUARE AT A TIME. Blend different colors with fingers/Q-tips to achieve realistic skin tone. Match colors with image as much as you can, including the background
     * Spray-fix drawing when it’s done. Cover with a sheet of newsprint to protect the drawing
     * Make sure to submit both reference photo and chalk pastel drawing ⬇️
+  * [Work](https://photos.app.goo.gl/7sC2LD2sHFcQpwDS6)
   * **Peer Feedbacks:**
     * From CW: Hello Yungfong! Great work on your piece. The proportions look good. The highlights and details give the portrait depth. The finished product looks clean and well-blended. My only comment would be regarding the color-matching since the colors are a tad more saturated than the original photo.
     * From SS: Hi Frank! First of all, I like the overall attention to detail that you put into your artwork, especially the eyebrow area. The colors look pretty accurate in terms of where the shadows and highlights are, with the warmer yellows being the highlights and the purple being the receding darker areas. I think that your artwork is along the lines of a complementary color scheme because of the dominating yellow and purple hues. I suggest possibly adding more beige to the yellow to make it more accurate based on the original image. Overall, great work!
