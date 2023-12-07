@@ -83,7 +83,7 @@ The second set is based on a photo of mushroom. For my painting, I plan to make 
   * Idea 3- Lamb: The third idea is to paint the head of a lamb. I do not like this idea that much. But I never paint lamb and could be fund to do create an abstract one. 
   * Idea 4- Blue and Red - Mixing Elements from red/blue Highheel, Bowl, Hat 
 The final set is based on 3 photos- a red hat, a Dior burgundy blue transparent heel designer high heel, and a blue color glassbowl. I think I can combine some elements from these three photo togeter: For example, apply the pattern on the blow to the highheel, apply the color and pattern on the highheel to the bowl, or paint both the hat and the highheel but adopt the highheel pattern to the hat. But I am not sure what message should I attache with this.
-  * **Feedback From Cindi Widl
+  * **Feedback From Cindi Widl**
     * Idea 1- Lips Flowers for "ME2": I like the color palette for this idea as well as the message behind it. The repetition makes it visually interesting. I'm just wondering how you would go about executing the stems. 
     * Idea 2- Mushroom, Zoom in as Georgia O'Keeffe: I think this would be my favorite idea. The differences in scale and the overlapping would make for a strong piece. I also think the colors you've chosen would suit it. 
     * Idea 3- Lamb: This idea could be cool but if you don't like it, I think it's better to go with something else. 
