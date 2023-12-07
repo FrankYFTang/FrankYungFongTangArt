@@ -76,6 +76,13 @@ I took ARTS 4B Intermediate Drawing in De Anza College during Fall 2023 (Septemb
 [All the work](https://photos.app.goo.gl/VBVMUnEA2ZHA6MU49)
 * **Assignment 4-Gouache Paint**
   * **Thumbnails** - Think about composition, picture plane orientation, location of words and color scheme
+    * I cut out several thing from magazine and developed four set of thumbnails.
+    * Idea 1- Lips Flowers for "ME2": The first one is based on the composition of a photo of a flower painting. But instead of paint flower, I will paint red female lips in different kind of red as the flowers. The background will be in skin color and  I cut out many female red lips for my "prototype" I also find several lipstick color from magazine for reference. This poster will be in landscape. On the upper right corner, I plan to collage a three letter M E 2 vertically to make this poster a MeToo movement reminder to encourage victims of sexual harassment to speak up. I like this design a lot. I need more detail design on the number, shape, size, color, angles, and placement of the lips.
+    * Idea 2- Mushroom, Zoom in as Georgia O'Keeffe
+The second set is based on a photo of mushroom. For my painting, I plan to make them in portrait mode and only pain 3-4 different mush room zoom in , larger and overlapping each other. Or maybe I should take the Georgia O'Keeffe approach to zoom in only one mushroom. The color tone will be dark purple, dark brown, dark orange, maybe yellow, if I paint that particular yellow mushroom.
+    * Idea 3- Lamb: The third idea is to paint the head of a lamb. I do not like this idea that much. But I never paint lamb and could be fund to do create an abstract one. 
+    * Idea 4- Blue and Red - Mixing Elements from red/blue Highheel, Bowl, Hat 
+The final set is based on 3 photos- a red hat, a Dior burgundy blue transparent heel designer high heel, and a blue color glassbowl. I think I can combine some elements from these three photo togeter: For example, apply the pattern on the blow to the highheel, apply the color and pattern on the highheel to the bowl, or paint both the hat and the highheel but adopt the highheel pattern to the hat. But I am not sure what message should I attache with this.
     * **Feedback**
       * From Cindi Widl
         * Idea 1- Lips Flowers for "ME2": I like the color palette for this idea as well as the message behind it. The repetition makes it visually interesting. I'm just wondering how you would go about executing the stems. 
