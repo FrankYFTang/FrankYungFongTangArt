@@ -74,6 +74,24 @@ I took ARTS 4B Intermediate Drawing in De Anza College during Fall 2023 (Septemb
   * Making comments in discussions takes up 5% of your grades. If you see many comments of one post, please move onto posts that have 0 or 1 comment
 
 [All the work](https://photos.app.goo.gl/VBVMUnEA2ZHA6MU49)
+* **Assignment 4-Gouache Paint**
+  * **Thumbnails** - Think about composition, picture plane orientation, location of words and color scheme
+    * **Feedback**
+      * From Cindi Widl
+        * Idea 1- Lips Flowers for "ME2": I like the color palette for this idea as well as the message behind it. The repetition makes it visually interesting. I'm just wondering how you would go about executing the stems. 
+        * Idea 2- Mushroom, Zoom in as Georgia O'Keeffe: I think this would be my favorite idea. The differences in scale and the overlapping would make for a strong piece. I also think the colors you've chosen would suit it. 
+        * Idea 3- Lamb: This idea could be cool but if you don't like it, I think it's better to go with something else. 
+        * Idea 4- Blue and Red - Mixing Elements from red/blue Highheel, Bowl, Hat: I like the concept of this idea with the red and blue mixture. I like the composition of this piece since its fills up the space but also leaves room for text on the side. It's a good idea but the blue/red painting might be a little challenging. 
+  * **MATERIALS:** Bristol paper, graphite pencil, ruler, tape, magazine, glue, gouache paint (or acrylic paint), brushes and palette
+  * **SIZE:** Taped picture plane of 10X12’’ (no smaller than 10’’)
+  * Students create a gouache illustration with collaged cut-out words inspired by an object(s) chosen from magazines. Consider the illustration a poster/advertisement for this product or your extended ideas inspired by the object(s) that you chose. NO HUMAN FIGURES unless students are confident regarding anatomy. The product can be an imaginary item from an orange (product can be a beverage), a shoe (product can be your own shoe brand), a handbag (product can be your own fashion brand), a flower (product can be a body oil or lotion), etc. DO NOT COPY AN EXISTING AD. Student who copy an existing ad will receive a failing grade.
+  * **STEPS:**
+    * Find an object(s) from magazine pages (high quality images).
+    * Sketch out thumbnails for your ideas and post in discussion (orientation of picture plane-vertical/horizontal/square, composition, arrangement of words). Think about a color scheme that can go well with your design. Pay attention to adjusting hue, value and saturation and using neutrals to create a visually pleasing design. Paint at least 4-5 swatches of the key colors that you plan on using in the design.
+    * Sketch out lightly with graphite pencil on Bristol and pay attention to shapes for highlights and shadows. Tape around your picture plane. Apply gouache paint evenly. Start from general to specific. Paint big shapes then small shapes. One shape at a time. Each shape should be painted flat and even. NO GRADATION WITHIN ONE SHAPE. 
+    * Paint the whole picture plane. Do not leave background blank.
+    * When painting is dry, glue cut-out words from magazines. Content of text can be ambiguous. Consider different effects of font, size and arrangement. Try different arrangements before gluing.
+    * [Work](https://photos.app.goo.gl/qxCrRnCrgtFtnR756)
 
 * **Exercise 6-Surrealism Thumbnails**
   * Show your thumbnails for our Final Assignment-Surrealism! Each thumbnail should show the following information:
