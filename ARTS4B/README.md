@@ -74,21 +74,21 @@ I took ARTS 4B Intermediate Drawing in De Anza College during Fall 2023 (Septemb
   * Making comments in discussions takes up 5% of your grades. If you see many comments of one post, please move onto posts that have 0 or 1 comment
 
 [All the work](https://photos.app.goo.gl/VBVMUnEA2ZHA6MU49)
-* **Assignment 4-Gouache Paint**
-  * **Thumbnails** - Think about composition, picture plane orientation, location of words and color scheme
-    * I cut out several thing from magazine and developed four set of thumbnails.
-    * Idea 1- Lips Flowers for "ME2": The first one is based on the composition of a photo of a flower painting. But instead of paint flower, I will paint red female lips in different kind of red as the flowers. The background will be in skin color and  I cut out many female red lips for my "prototype" I also find several lipstick color from magazine for reference. This poster will be in landscape. On the upper right corner, I plan to collage a three letter M E 2 vertically to make this poster a MeToo movement reminder to encourage victims of sexual harassment to speak up. I like this design a lot. I need more detail design on the number, shape, size, color, angles, and placement of the lips.
-    * Idea 2- Mushroom, Zoom in as Georgia O'Keeffe
+* **Assignment 4-Gouache Paint Thumbnails**
+  * Think about composition, picture plane orientation, location of words and color scheme
+  * I cut out several thing from magazine and developed four set of thumbnails.
+  * Idea 1- Lips Flowers for "ME2": The first one is based on the composition of a photo of a flower painting. But instead of paint flower, I will paint red female lips in different kind of red as the flowers. The background will be in skin color and  I cut out many female red lips for my "prototype" I also find several lipstick color from magazine for reference. This poster will be in landscape. On the upper right corner, I plan to collage a three letter M E 2 vertically to make this poster a MeToo movement reminder to encourage victims of sexual harassment to speak up. I like this design a lot. I need more detail design on the number, shape, size, color, angles, and placement of the lips.
+  * Idea 2- Mushroom, Zoom in as Georgia O'Keeffe
 The second set is based on a photo of mushroom. For my painting, I plan to make them in portrait mode and only pain 3-4 different mush room zoom in , larger and overlapping each other. Or maybe I should take the Georgia O'Keeffe approach to zoom in only one mushroom. The color tone will be dark purple, dark brown, dark orange, maybe yellow, if I paint that particular yellow mushroom.
-    * Idea 3- Lamb: The third idea is to paint the head of a lamb. I do not like this idea that much. But I never paint lamb and could be fund to do create an abstract one. 
-    * Idea 4- Blue and Red - Mixing Elements from red/blue Highheel, Bowl, Hat 
+  * Idea 3- Lamb: The third idea is to paint the head of a lamb. I do not like this idea that much. But I never paint lamb and could be fund to do create an abstract one. 
+  * Idea 4- Blue and Red - Mixing Elements from red/blue Highheel, Bowl, Hat 
 The final set is based on 3 photos- a red hat, a Dior burgundy blue transparent heel designer high heel, and a blue color glassbowl. I think I can combine some elements from these three photo togeter: For example, apply the pattern on the blow to the highheel, apply the color and pattern on the highheel to the bowl, or paint both the hat and the highheel but adopt the highheel pattern to the hat. But I am not sure what message should I attache with this.
-    * **Feedback**
-      * From Cindi Widl
-        * Idea 1- Lips Flowers for "ME2": I like the color palette for this idea as well as the message behind it. The repetition makes it visually interesting. I'm just wondering how you would go about executing the stems. 
-        * Idea 2- Mushroom, Zoom in as Georgia O'Keeffe: I think this would be my favorite idea. The differences in scale and the overlapping would make for a strong piece. I also think the colors you've chosen would suit it. 
-        * Idea 3- Lamb: This idea could be cool but if you don't like it, I think it's better to go with something else. 
-        * Idea 4- Blue and Red - Mixing Elements from red/blue Highheel, Bowl, Hat: I like the concept of this idea with the red and blue mixture. I like the composition of this piece since its fills up the space but also leaves room for text on the side. It's a good idea but the blue/red painting might be a little challenging. 
+  * **Feedback From Cindi Widl
+    * Idea 1- Lips Flowers for "ME2": I like the color palette for this idea as well as the message behind it. The repetition makes it visually interesting. I'm just wondering how you would go about executing the stems. 
+    * Idea 2- Mushroom, Zoom in as Georgia O'Keeffe: I think this would be my favorite idea. The differences in scale and the overlapping would make for a strong piece. I also think the colors you've chosen would suit it. 
+    * Idea 3- Lamb: This idea could be cool but if you don't like it, I think it's better to go with something else. 
+    * Idea 4- Blue and Red - Mixing Elements from red/blue Highheel, Bowl, Hat: I like the concept of this idea with the red and blue mixture. I like the composition of this piece since its fills up the space but also leaves room for text on the side. It's a good idea but the blue/red painting might be a little challenging. 
+* **Assignment 4-Gouache Paint**
   * **MATERIALS:** Bristol paper, graphite pencil, ruler, tape, magazine, glue, gouache paint (or acrylic paint), brushes and palette
   * **SIZE:** Taped picture plane of 10X12’’ (no smaller than 10’’)
   * Students create a gouache illustration with collaged cut-out words inspired by an object(s) chosen from magazines. Consider the illustration a poster/advertisement for this product or your extended ideas inspired by the object(s) that you chose. NO HUMAN FIGURES unless students are confident regarding anatomy. The product can be an imaginary item from an orange (product can be a beverage), a shoe (product can be your own shoe brand), a handbag (product can be your own fashion brand), a flower (product can be a body oil or lotion), etc. DO NOT COPY AN EXISTING AD. Student who copy an existing ad will receive a failing grade.
