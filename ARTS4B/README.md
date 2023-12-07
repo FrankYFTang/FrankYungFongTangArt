@@ -104,7 +104,37 @@ The final set is based on 3 photos- a red hat, a Dior burgundy blue transparent 
   * Show your thumbnails for our Final Assignment-Surrealism! Each thumbnail should show the following information:
     * What strategies did you use?
     * What medium are you planning on using?
-    * (See below)
+    * **Idea A Hamer with White Wings, Peacock Tail and Lobster Claws and Legs**
+      * Strategies: Metamorphosis
+      * Medium:
+        * Hamer : Micron pen & Ink
+        * White Wings: Paper cutout collage 
+        * Peacock Tail: Acrylic
+        * Lobster Claws and Legs: Watercolor or Acrylic (undecided)
+        * Background: Watercolor + Collage
+    * **Idea B Pills + pill bottles + people**
+      * Strategies - Scale + Repetition + Dislocation
+      * Medium:
+        * Pills : Pastel / fuzzy / large in size
+        * Pill Bottles: Acrylic / clearer / medium in size
+        * People: Micron pen / crisp / small in size
+    * **Idea C: Super Toilet**
+      * Strategies: Metamorphosis
+      * Medium:
+        * Toilet : Acrylic
+        * Spring: Ink & Pen
+        * Rocket Engine : Acrylic
+        * Flame: Acrylic
+        * Background: Acrylic + Collage
+        * Letters: Cutout Collage
+    * **Idea D: Cooking Tools**
+      * Strategies: Dislocation
+      * Medium:
+        * Pan: Micron Pen
+        * Tools: Micron Pen & Acrylic
+        * Fire: Acrylic 
+        * Background: Watercolor
+    * [Thumbnails](https://photos.app.goo.gl/5KxhLsgpcRzL5fUS7)
 * **Final Project**
   * **Materials:** Open Medium: Micron ink pen, ink & brush, charcoal, graphite, Conte, colored pencil, chalk pastel, gouache paint, collage, stencil, transfer and any layering techniques. Students who use mixed media will be given extra credit. Charcoal & graphite are too similar and will not be considered mixed media when used in an artwork.
   * **Size:** whole sheet of Bristol/Strathmore paper. Tape edges if needed
