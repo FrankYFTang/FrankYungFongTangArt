@@ -75,7 +75,24 @@ I took ARTS 4B Intermediate Drawing in De Anza College during Fall 2023 (Septemb
 
 [All the work](https://photos.app.goo.gl/VBVMUnEA2ZHA6MU49)
 
-
+* **Exercise 6-Surrealism Thumbnails**
+  * Show your thumbnails for our Final Assignment-Surrealism! Each thumbnail should show the following information:
+    * What strategies did you use?
+    * What medium are you planning on using?
+    * (See below)
 * **Final Project**
-  * Making of Announciation
+  * **Materials:** Open Medium: Micron ink pen, ink & brush, charcoal, graphite, Conte, colored pencil, chalk pastel, gouache paint, collage, stencil, transfer and any layering techniques. Students who use mixed media will be given extra credit. Charcoal & graphite are too similar and will not be considered mixed media when used in an artwork.
+  * **Size:** whole sheet of Bristol/Strathmore paper. Tape edges if needed
+  * For our final assignment, students are asked to create a surrealistic drawing inspired by everyday object(s) around us. Utilize the strategies introduced in class. Consider the following when developing thumbnails:
+    * What strategy(ies) should you use to execute the idea?
+    * What composition will make this drawing more effective? (viewing angle, cropping, rule of 3rd)
+
+    * What about the background? What do you need to add to make your idea more visually interesting? (foreground, middle ground, background)
+
+    * Where is your focal point? What should you do to make it stand out? (value contrast, warm/cook color, amount of details, etc.)
+
+    * What about lighting? Will adding cast shadows help?
+
+    * The final drawing must consist at least 60% hand drawing (marks made by the hand as opposed to collage, transfer, etc.). To make a convincing drawing, you are encouraged to use visual references. For example, feel free to use photographs of clouds if you need to add them in the background. 
+  * [Making of Announciation](The%20Making%20of%20Annunciation.pdf)
   * [Process](https://photos.app.goo.gl/5KxhLsgpcRzL5fUS7)
