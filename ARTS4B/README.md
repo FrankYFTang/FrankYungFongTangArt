@@ -156,3 +156,8 @@ The final set is based on 3 photos- a red hat, a Dior burgundy blue transparent 
     * The final drawing must consist at least 60% hand drawing (marks made by the hand as opposed to collage, transfer, etc.). To make a convincing drawing, you are encouraged to use visual references. For example, feel free to use photographs of clouds if you need to add them in the background. 
   * [Making of Announciation](The%20Making%20of%20Annunciation.pdf)
   * [Process](https://photos.app.goo.gl/5KxhLsgpcRzL5fUS7)
+  * **Peer Feedbacks:**
+    * From CW: "Hello Yungfong. I really like your piece! I like the sense of randomness with the balance of your deeper message. Your use of different materials created a great contrast and your composition fills up the entire space."
+    * From VRB: "Hi Yungfong, lots of details in this! The more I look the more new things I find. The gold in our work leads the viewer to the pair of eyes then move down the length of the hammer. It flows very nicely. Thank you for putting in more effort by adding a PDF on your process with making your artwork, it gives me a much more transparent view of how much effort and energy you put into this! Amazing job."
+    * From Professor: "Good job Frank. I love how fearless you are with mixed media.", "Powerful artwork. I'm glad that you followed the rule of thirds. The eyes certainly draw out attention."
+    * From ST: "Hi Yung Fong, the religious imagery is done well, noting the light rays coming out of the middle as most religious works include. The addition of mixed media such as cutouts of jewelry, eyes, bags, etc; creates a nice contrast to the hand-drawn elements and plays well into surrealism. Great work!"
