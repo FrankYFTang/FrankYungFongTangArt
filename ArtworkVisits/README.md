@@ -49,9 +49,10 @@ This page lists links pointing to Museum and Art Galleries I visited:
   * [2023 Visit](https://photos.app.goo.gl/hg28JvCoNUCydScm9)
 * [MoMA](https://photos.app.goo.gl/m84fTqo6aT2DPo9P7), New York City, New York
 * [MoMA PS1](https://photos.app.goo.gl/sz4R4y9RSMUFvYuy8), New York City, New York
+* [New Museum](https://photos.app.goo.gl/JRSqBzhUFpmqej2m8), New York City, New York
 * [Neue Galerie New York](https://photos.app.goo.gl/VXsEJ5BRsxhUT2Cw8), New York City, New York
-* [Frick Madison](https://photos.app.goo.gl/UbcnnErSoZkuqW467), New York City, New York
 * [The Guggenheim](https://photos.app.goo.gl/kJncEnfxKmBw595g8), New York City, New York
+* [Frick Madison](https://photos.app.goo.gl/UbcnnErSoZkuqW467), New York City, New York
 * [Sotheby's](https://photos.app.goo.gl/Y5Q21b8JX7uhij7N6), New York City, New York
 * [NYC Subway](https://photos.app.goo.gl/5Wu43vZCT8S5CmLW7), New York City, New York
 * [American Radiator Building](https://photos.app.goo.gl/HW9kscji8dsx8me26), New York City, New York
