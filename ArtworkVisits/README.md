@@ -49,6 +49,7 @@ This page lists links pointing to Museum and Art Galleries I visited:
   * [2023 Visit](https://photos.app.goo.gl/hg28JvCoNUCydScm9)
 * [MoMA](https://photos.app.goo.gl/m84fTqo6aT2DPo9P7), New York City, New York
 * [MoMA PS1](https://photos.app.goo.gl/sz4R4y9RSMUFvYuy8), New York City, New York
+  * [DANIEL LIND-RAMOS El Viejo Griot](https://photos.app.goo.gl/scEkkjxPxXiKgRQt5)
 * [New Museum](https://photos.app.goo.gl/JRSqBzhUFpmqej2m8), New York City, New York
 * [Neue Galerie New York](https://photos.app.goo.gl/VXsEJ5BRsxhUT2Cw8), New York City, New York
 * [The Guggenheim](https://photos.app.goo.gl/kJncEnfxKmBw595g8), New York City, New York
