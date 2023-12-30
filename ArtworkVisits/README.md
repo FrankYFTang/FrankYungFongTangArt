@@ -45,6 +45,7 @@ This page lists links pointing to Museum and Art Galleries I visited:
 * [The MET](https://photos.app.goo.gl/M8YnV9o1QNfrGTUL8), New York City, New York
   * [Native American Arts](https://photos.app.goo.gl/i8YMPP1mgYHzRBkd8)
   * [Karl Lagerfeld: A Line of Beauty](https://photos.app.goo.gl/kFrH2dN7bZFjLX1EA)
+  * [Cecily Brown: Death and the Maid](https://photos.app.goo.gl/i4ZrQABhFUQ6gQ5bA)
 * [The MET Cloisters](https://photos.app.goo.gl/xBpAe5FDUSgbKkxs6), New York City, New York
 * [The Whiteney](https://photos.app.goo.gl/6yPY71d4KRJf4qcC8), New York City, New York
   * [2023 Visit](https://photos.app.goo.gl/hg28JvCoNUCydScm9)
