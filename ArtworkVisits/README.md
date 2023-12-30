@@ -10,12 +10,19 @@ This page lists links pointing to Museum and Art Galleries I visited:
   * East of the Pacific: Making Histories of Asian American Art (September 28, 2022–February 12, 2023)
   * Morris Hirshfield Rediscovered (September 6, 2023–January 21, 2024)
 * [Anderson Collection](https://photos.app.goo.gl/ZafZxLmjXDEXfJJR7), Stanford, California
+* [Papua New Guinea Sculpture Garden](https://photos.app.goo.gl/u4uq7gKx9Ykkdjtf7), Stanford, California
 * [Legion of Honor](https://photos.app.goo.gl/h5MzNRduWNqm6oMJ6), San Francsisco, California
-* [San Jose Museum of Art](https://photos.app.goo.gl/Py57GArqEia1koj26), San Jose, California 
+* [San Jose Museum of Art](https://photos.app.goo.gl/Py57GArqEia1koj26), San Jose, California
+* [Scottish Rite Temple](https://photos.app.goo.gl/SbMxjSUNvMZgzT9B9), San Jose, California
 * The Broad, Los Angeles, California
 * The Getty, Los Angeles, California
 * [National Gallery of Art](https://photos.app.goo.gl/mwoMLBYJoXmhigUq6), Washington DC
 * [National Portrait Gallery](https://photos.app.goo.gl/9hU4643k9HbombNj8), Washington DC
+* [National Museum of Asian Art / Freer Gallery of Art](https://photos.app.goo.gl/iAmCsPdVsSW3wdWE9), Washington DC
+* [Museum of the American Indian](https://photos.app.goo.gl/3kaV74RzEwgcXdFz5), Washington DC
+* [Hirshhorn Museum and Sculpture Garden](https://photos.app.goo.gl/3kaV74RzEwgcXdFz5), Washington DC
+* [National Museum of African Art](https://photos.app.goo.gl/nASLMfMz8mphLtY76), Washington DC
+* [National Museum of African American History and Culture](https://photos.app.goo.gl/ApXDPLuqfiEso2qb6), Washington DC
 * [The MET](https://photos.app.goo.gl/M8YnV9o1QNfrGTUL8), New York City, New York
   * [Native American Arts](https://photos.app.goo.gl/i8YMPP1mgYHzRBkd8)
 * [The MET Cloisters](https://photos.app.goo.gl/xBpAe5FDUSgbKkxs6), New York City, New York
@@ -28,3 +35,5 @@ This page lists links pointing to Museum and Art Galleries I visited:
 * [The Guggenheim](https://photos.app.goo.gl/kJncEnfxKmBw595g8), New York City, New York
 * [Sotheby's](https://photos.app.goo.gl/Y5Q21b8JX7uhij7N6), New York City, New York
 * [NYC Subway](https://photos.app.goo.gl/5Wu43vZCT8S5CmLW7), New York City, New York
+* [American Radiator Building](https://photos.app.goo.gl/HW9kscji8dsx8me26), New York City, New York
+* [Changdeokgung Palace](https://photos.app.goo.gl/utqQLn5C8ZT8ou4F8), Seoul, South Korea
