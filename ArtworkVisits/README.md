@@ -14,6 +14,7 @@ This page lists links pointing to Museum and Art Galleries I visited:
   * Morris Hirshfield Rediscovered (September 6, 2023–January 21, 2024)
 * [Anderson Collection](https://photos.app.goo.gl/ZafZxLmjXDEXfJJR7), Stanford, California
 * [Papua New Guinea Sculpture Garden](https://photos.app.goo.gl/u4uq7gKx9Ykkdjtf7), Stanford, California
+* [San Francisco's Mission District Murals](https://photos.app.goo.gl/BBovYJ1ZieECe5FX6), San Francsisco, California
 * [Legion of Honor](https://photos.app.goo.gl/h5MzNRduWNqm6oMJ6), San Francsisco, California
 * [San Jose Museum of Art](https://photos.app.goo.gl/Py57GArqEia1koj26), San Jose, California
 * [Scottish Rite Temple](https://photos.app.goo.gl/SbMxjSUNvMZgzT9B9), San Jose, California
