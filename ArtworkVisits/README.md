@@ -25,6 +25,12 @@ This page lists links pointing to Museum and Art Galleries I visited:
 * [The Getty](https://photos.app.goo.gl/csSyzho8GjcdSrGv5), Los Angeles, California
 * [MOCA](https://photos.app.goo.gl/beqZ2mgCUsyvudD97), Los Angeles, California
 
+## Seattle, Washington
+* [Trol of Fremont](https://photos.app.goo.gl/jPLafER7nCnyGQC1A), Seattle, Washington
+
+## Vancouver, Canada
+* [Stanley Park](https://photos.app.goo.gl/iZgYMmcLvaiEMucC6) Vancouver, British Columbia, Canada
+
 ## Washington DC
 * [National Gallery of Art](https://photos.app.goo.gl/mwoMLBYJoXmhigUq6), Washington DC
 * [National Portrait Gallery](https://photos.app.goo.gl/9hU4643k9HbombNj8), Washington DC
