@@ -167,9 +167,9 @@ Saponara, Michael. “J. Cole Delivers Surprise Performance at 6lack Concert in 
 
 Dear Jo:
 
-        Thank you for sharing this old song. It is really nice. I was not aware this song was written in July 1945 till you pointed it out. And I think the timing of the song is important. The song writer Mel Tormé was born in 1925 (Nobbman). Therefore he was 20 years old when he wrote this song. During that time, Mel was drafted and served in the United State army during WWII. At the end of April 1945, Germany surrendered in the European theater (Wilson) but the war did not end. Many US troops were still fighting Japanese in the Pacific theater and had no idea when and how the war against the Japanese would end. The 82-day brutal Battle of Okinawa lasted from 1 April until 22 June 1945 and cost a total 83,000 American combat casualties (Alexander). 12,500 American soldiers killed and missing, and another 36,122 wounded (Altenberg). The news about this armed conflict is still impacting daily American life. Many just learn they will not see their son, father, or husband coming back. Even worse, for most young Americans, they still have no idea where they will spend their Christmas that year in 1945 and who will still be with them. Will they be able to rest at home? Or station in a remote island in the Pacific ocean to fight the last Japanese soldier? Will their loved one make it home safely, without losing any limb? No one knows. So many loved ones were hurt and killed the previous four years. No one knows what will happen to their life five months down the road in that year. 
+Thank you for sharing this old song. It is really nice. I was not aware this song was written in July 1945 till you pointed it out. And I think the timing of the song is important. The song writer Mel Tormé was born in 1925 (Nobbman). Therefore he was 20 years old when he wrote this song. During that time, Mel was drafted and served in the United State army during WWII. At the end of April 1945, Germany surrendered in the European theater (Wilson) but the war did not end. Many US troops were still fighting Japanese in the Pacific theater and had no idea when and how the war against the Japanese would end. The 82-day brutal Battle of Okinawa lasted from 1 April until 22 June 1945 and cost a total 83,000 American combat casualties (Alexander). 12,500 American soldiers killed and missing, and another 36,122 wounded (Altenberg). The news about this armed conflict is still impacting daily American life. Many just learn they will not see their son, father, or husband coming back. Even worse, for most young Americans, they still have no idea where they will spend their Christmas that year in 1945 and who will still be with them. Will they be able to rest at home? Or station in a remote island in the Pacific ocean to fight the last Japanese soldier? Will their loved one make it home safely, without losing any limb? No one knows. So many loved ones were hurt and killed the previous four years. No one knows what will happen to their life five months down the road in that year. 
 
-        Consider if you are a soldier of the American Marine stationed in a tiny Pacific Island at that time, and your trop are preparing to fight the next battle against the Japanese next week. What would come to your mind when you hear the lyrics: 
+Consider if you are a soldier of the American Marine stationed in a tiny Pacific Island at that time, and your trop are preparing to fight the next battle against the Japanese next week. What would come to your mind when you hear the lyrics: 
 
 “Chestnuts roasting on an open fire
 
@@ -222,4 +222,42 @@ Teubig, Klaus. Straighten Up and Fly Right: A Chronology and Discography of Nat 
 Wilson, Theodore A. "Götterdämmerung: War’s End in Europe, 1945." Between War and Peace: How America
         Ends Its Wars (2011): 197-219.
 
-### Comments to
+### Comments to Kailan Chao
+*  "White Christmas" by Bing Crosby.
+
+Dear Kailan:
+
+This song was an important part of the 1942 American musical film “Holiday Inn” featuring Bing Crosby and Fred Astaire, with Marjorie Reynolds, Virginia Dale, and Walter Abel (Wright). In the film, Bing Crosby and Marjorie Reynolds sang a duet version together in front of a fireplace inside Holiday Inn (Prigozy and Raubicheck, “Holiday Inn”). This song was written by Irving Berlin (Decker). The composition of this song won the Academy Award for Best Original Song at the 15th Academy Awards (Bergreen). Berlin was a Jewish immigrant born in Imperial Russia (Churnin). He moved to New York city in 1893 when he was five years old (Shaw) and lived there till he died 101 years old in 1989 (Nuchi). When Berlin wrote “a white Christmas Just like the ones I used to know” he could refer to the scene he saw in Russia during his young childhood or what he saw in New York City (Scholar and Roth). Berlin is a Jew and his view of Christmas is a holiday unrelated to Christian faith but rather a secular view of time for family gathering. We see no Biblical references or any mention of Jesus Christ in the lyric but rather the story of modern day family reunion. It became one of the early success of secular Christmas songs that many modern musican follow. “To hear sleigh bells in the snow” implied the experience of his Russian childhood experience that a modern day adult will not be able to experience inside New York City (Butnick et al). 
+
+www.youtube.com/watch?v=GJ36gbGlm8YLinks to an external site.
+
+ 
+### Works Cited
+
+Bergreen, Laurence. As thousands cheer: the life of Irving Berlin. Da Capo Press, 1996.
+
+Butnick, Stephanie, Liel Leibovitz, and Mark Oppenheimer. The Newish Jewish Encyclopedia: From
+        Abraham to Zabar's and Everything in Between. Artisan, 2019.
+
+Churnin, Nancy. Irving Berlin: The immigrant boy who made America sing. Creston Books, 2018.
+
+Decker, Todd. "On the Scenic Route to Irving Berlin's Holiday Inn (1942)." The Journal of Musicology
+        28.4 (2011): 464-497.
+
+“Holiday Inn | Bing Crosby Sings ‘White Christmas.’” YouTube, YouTube, 14 Dec. 2019,
+        www.youtube.com/watch?v=GJ36gbGlm8Y. 
+
+Nuchi, Adah. God Bless America: The Story of an Immigrant Named Irving Berlin. Little, Brown Books
+        for Young Readers, 2018.
+
+Prigozy, Ruth, and Walter Raubicheck, eds. Going My Way: Bing Crosby and American Culture. University
+        Rochester Press, 2007.
+
+Shaw, John. This land that I love: Irving Berlin, Woody Guthrie, and the story of two American anthems.
+        Public Affairs, 2013.
+
+Scholar, Jefferson, and Andrew Roth. "Classic Book Notes# 82." (2023).
+
+Wright, Julie Lobalzo. Crossover stardom: Popular male music stars in American cinema. Bloomsbury
+        Publishing USA, 2017.
+
