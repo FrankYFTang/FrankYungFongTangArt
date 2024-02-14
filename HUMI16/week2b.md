@@ -76,13 +76,13 @@ A time for love, a time for hate
 A time for peace, I swear it's not too late
 (“Turn, Turn, Turn” Lyrics)
 
-        The Vietnam War started in 1954 (Moyar). The president of the United States, Lyndon Johnson in March 1965 declared strong support to back up the South Vietnam government and dramatically increase the US combat forces into battle in Vietnam (Berman). It is a time of war and capriciousness. Young male get drafted into military service to fight for a war they do not know why they should fight and lose their time, health and sometimes life for a conflict in a remote country (Isaacs). It is a time of conflict, a time of instability. The lyrics of this song raise the question to everyone to think about what is life for and face our loss. The expressed meaning of the lyrics shows different incidents will happen in different times and we just cannot escape for the moment for our turn. The hidden meaning of the sovereignty of God is “that however difficult things may be because of the curse upon mankind in this fallen world, there is purpose and grace for all. There is enduring hope and satisfying life as we walk with God.” (“The Global Message of Ecclesiastes.” ESV Bible)
 
-       This song is especially meaningful for us today. The global challenges we are facing in 2024 are actually not too different from what the generation before us in 1965 faced. The Russian invasion into Ukraine, the Israel–Hamas war, the 2024 Yemeni airstrikes by US and UK all remind us we no longer live in a mostly peaceful world any more. We may likely enter into a period of several pre-WWIII local conflicts which may eventually escalate into a global war soon. In this new era, how should we view our world? How should we face tomorrow? How should we deal with all these world conflicts that are not in our control? As the ending phrase in the lyrics states- “A time for peace, I swear it's not too late”. 
+The Vietnam War started in 1954 (Moyar). The president of the United States, Lyndon Johnson in March 1965 declared strong support to back up the South Vietnam government and dramatically increase the US combat forces into battle in Vietnam (Berman). It is a time of war and capriciousness. Young male get drafted into military service to fight for a war they do not know why they should fight and lose their time, health and sometimes life for a conflict in a remote country (Isaacs). It is a time of conflict, a time of instability. The lyrics of this song raise the question to everyone to think about what is life for and face our loss. The expressed meaning of the lyrics shows different incidents will happen in different times and we just cannot escape for the moment for our turn. The hidden meaning of the sovereignty of God is “that however difficult things may be because of the curse upon mankind in this fallen world, there is purpose and grace for all. There is enduring hope and satisfying life as we walk with God.” (“The Global Message of Ecclesiastes.” ESV Bible)
 
- 
+This song is especially meaningful for us today. The global challenges we are facing in 2024 are actually not too different from what the generation before us in 1965 faced. The Russian invasion into Ukraine, the Israel–Hamas war, the 2024 Yemeni airstrikes by US and UK all remind us we no longer live in a mostly peaceful world any more. We may likely enter into a period of several pre-WWIII local conflicts which may eventually escalate into a global war soon. In this new era, how should we view our world? How should we face tomorrow? How should we deal with all these world conflicts that are not in our control? As the ending phrase in the lyrics states- “A time for peace, I swear it's not too late”. 
 
-                                                      Works Cited
+
+### Works Cited
 
 Belcher, Richard P. A Study Commentary on Ecclesiastes. Evangelical Press, 2014.
 
@@ -124,8 +124,6 @@ I remember listening to this song on the radio when I was a kid. I always enjoye
 
 Dear Katie
 
- 
-
 Thank you for sharing the song “Pretty Little Fears”. It is not a genre of music I usually listen to so this is the first time I hear this song. I pay extra attention to the lyrics and wonder when the lyrics mentioned “West Side” and “East Side”. What are these meanings? Which city is 6LACK talking about?
 
 I searched and found 6LACK was born in Baltimore, Maryland but raised in Atlanta, Georgia (Obasa). This song was one song included in his second studio album “East Atlanta Love Letter” released in 2018 (Saponara). Therefore, we can conclude that the phrase “East Side” vs “West Side” are talking about the area in Atlanta, Georgia. 
@@ -154,9 +152,7 @@ The full acceptance can only come from the almighty God, never from another girl
 
 This song was nominated for a Grammy Award for Best Rap/Sung Performance and went platinum on 5 June 2019 through Recording Industry Association of America (i_am_music_criticism). 
 
- 
-
-                Works Cited
+Works Cited
 
 i_am_music_criticism. “Does ‘Pretty Little Fears’ Reveal a Lot More about 6lack and j.Cole?” I_am_music_criticism,
         11 June 2020, sarahmkorongo.wixsite.com/website/post/does-pretty-little-fears-reveal-a-lot-more-about-6lack-and-j-cole. 
