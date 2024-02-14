@@ -15,35 +15,23 @@ I visited Sotheby’s New York City in the morning of May 16, 2023. One piece th
 Klimt is most famous for his female figure paintings such as Dame mit Fächer (Lady with a Fan), 1918 (Sármány-Parsons). Beside that, the only other known genre he painted is landscape (Néret and Klimt). Klimt took a radical approach to landscape painting in this work. His emphasis on water, interplay with the light and shadow deviate from traditional landscape conventions and use a cropped composition on a square canvas. He demonstrated his avant-garde spirit and artistic vision strongly in this work. His artistic innovation and unique style elevate its valency. Klimt also demonstrated great technical skill and eminent execution by using the combination of Dull Turquoise, Matte Beach, Dark Greige, Silver Pink, Pinkish Grey, Chrome Aluminum, and Silver Pine color with masterful brushwork in short strokes to form the body of the lake (Fig. 3-4). He rendered the work with nuanced blending, and subtle tonal transitions to create an enamoring water reflection, highlighting his admirable technical abilities. This work also captures Klimt's idyllic summer vacations at the Attersee lake, interfusing with his personal intimacy and escapism. This is also a work that was painted before Klimt's transition towards his iconic Golden Period, making this work a crucial piece in understanding his artistic evolution and impact on Austrian Modernism. Also, the previous high sales price of Klimt’s other works also increased its value. For example, “Klimt’s landscape Birch Forest, from 1903, sold for US$104.6 million with fees at Christie’s auction of the collection of the late Microsoft co-founder Paul Allen, setting an auction price record for the artist.” (Schultz). Forty days after the auction of this work, his female figure painting “Lady with a Fan” sold for $108.4 million in Europe and broke the record for the most expensive piece of art, and most expensive painting, ever sold in Europe (Burack). Therefore, the high sales price of different artworks from the same artist convinced collectors to believe his artwork is a good investment option for their wealth.  
 
 ### Works Cited
-Bregman, Alexandra. “Sotheby’s Sells ‘Insel Im Attersee’ by Gustav Klimt for $53.2 Million.” Forbes, Forbes
-        Magazine, 16 May 2023,
-        www.forbes.com/sites/alexandrabregman/2023/05/16/sothebys-sells-insel-im-attersee-for-532-million/. 
+Bregman, Alexandra. “Sotheby’s Sells ‘Insel Im Attersee’ by Gustav Klimt for $53.2 Million.” Forbes, Forbes Magazine, 16 May 2023, www.forbes.com/sites/alexandrabregman/2023/05/16/sothebys-sells-insel-im-attersee-for-532-million/. 
 
-Burack, Emily. “Will Gustav Klimt’s ‘Lady with a Fan’ Be the Most Expensive Painting ...” Town and Country,
-        27 June 2023,
-        www.townandcountrymag.com/leisure/arts-and-culture/a44199234/lady-with-a-fan-gustav-klimt-sale/. 
+Burack, Emily. “Will Gustav Klimt’s ‘Lady with a Fan’ Be the Most Expensive Painting ...” Town and Country, 27 June 2023, www.townandcountrymag.com/leisure/arts-and-culture/a44199234/lady-with-a-fan-gustav-klimt-sale/. 
 
-Farrant, Theo. “What Were the Most Expensive Paintings Sold at Auction in 2023?” Euronews, 3 Jan. 2024,
-        www.euronews.com/culture/2024/01/03/picasso-and-klimt-masterpieces-these-are-the-most-expensive-paintings-sold-at-auction-in-2. 
+Farrant, Theo. “What Were the Most Expensive Paintings Sold at Auction in 2023?” Euronews, 3 Jan. 2024, www.euronews.com/culture/2024/01/03/picasso-and-klimt-masterpieces-these-are-the-most-expensive-paintings-sold-at-auction-in-2. 
 
-“Here Are the 10 Most Expensive Works Sold at Auction in 2023-and Why They Fetched the Prices They Did.”
-        Artnet News, 27 Dec. 2023, news.artnet.com/market/10-most-expensive-works-auction-2023-2406725. 
+“Here Are the 10 Most Expensive Works Sold at Auction in 2023-and Why They Fetched the Prices They Did.” Artnet News, 27 Dec. 2023, news.artnet.com/market/10-most-expensive-works-auction-2023-2406725. 
 
-“Insel Im Attersee (Island in the Attersee): Modern Evening Auction: 2023.” Sotheby’s,
-        www.sothebys.com/en/buy/auction/2023/modern-evening-auction/insel-im-attersee-island-in-the-attersee.
-        Accessed 22 Jan. 2024.    
+“Insel Im Attersee (Island in the Attersee): Modern Evening Auction: 2023.” Sotheby’s, www.sothebys.com/en/buy/auction/2023/modern-evening-auction/insel-im-attersee-island-in-the-attersee. Accessed 22 Jan. 2024.    
 
 Néret, Gilles, and Gustav Klimt. Gustav Klimt: 1862-1918. Taschen, 2000.
 
 Sármány-Parsons, Ilona. "The Image of Women in Painting." Rethinking Vienna 1900 (2012): 220-63.
 
-Schultz, Abby. Gustav Klimt’s ‘Insel Im Attersee’ Fetches US$53 ... - Barron’s, Barron’s, 17 May 2023,
-        www.barrons.com/articles/gustav-klimts-insel-im-attersee-fetches-us-53-million-at-sothebys-8355bec5. 
+Schultz, Abby. Gustav Klimt’s ‘Insel Im Attersee’ Fetches US$53 ... - Barron’s, Barron’s, 17 May 2023, www.barrons.com/articles/gustav-klimts-insel-im-attersee-fetches-us-53-million-at-sothebys-8355bec5. 
 
-Vincent, Isabel. “Questions Linger about Wartime Past of Klimt Art That Sold for $53M This Week.”
-
-        New York Post, New York Post, 19 May 2023,
-        nypost.com/2023/05/18/questions-remain-about-wartime-past-of-53m-klimt-masterpiece/.
+Vincent, Isabel. “Questions Linger about Wartime Past of Klimt Art That Sold for $53M This Week.” New York Post, New York Post, 19 May 2023, nypost.com/2023/05/18/questions-remain-about-wartime-past-of-53m-klimt-masterpiece/.
 
 ### Illustrations
 
