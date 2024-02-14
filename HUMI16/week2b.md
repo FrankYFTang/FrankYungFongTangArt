@@ -162,8 +162,64 @@ Obasa, Sola. “6lack’s Inspiring Story.” Apprentice Nation, 4 Dec. 2019, ap
 Saponara, Michael. “J. Cole Delivers Surprise Performance at 6lack Concert in L.A.” HipHopDX, HipHopDX,
         11 Oct. 2023, hiphopdx.com/news/j-cole-surprise-performance-6lack. 
         
-### Comments to 
+### Comments to Jo Anne Tirtasana
+* The Christmas SongLinks to an external site. (1946) by Nat “King” Cole
 
+Dear Jo:
 
+        Thank you for sharing this old song. It is really nice. I was not aware this song was written in July 1945 till you pointed it out. And I think the timing of the song is important. The song writer Mel Tormé was born in 1925 (Nobbman). Therefore he was 20 years old when he wrote this song. During that time, Mel was drafted and served in the United State army during WWII. At the end of April 1945, Germany surrendered in the European theater (Wilson) but the war did not end. Many US troops were still fighting Japanese in the Pacific theater and had no idea when and how the war against the Japanese would end. The 82-day brutal Battle of Okinawa lasted from 1 April until 22 June 1945 and cost a total 83,000 American combat casualties (Alexander). 12,500 American soldiers killed and missing, and another 36,122 wounded (Altenberg). The news about this armed conflict is still impacting daily American life. Many just learn they will not see their son, father, or husband coming back. Even worse, for most young Americans, they still have no idea where they will spend their Christmas that year in 1945 and who will still be with them. Will they be able to rest at home? Or station in a remote island in the Pacific ocean to fight the last Japanese soldier? Will their loved one make it home safely, without losing any limb? No one knows. So many loved ones were hurt and killed the previous four years. No one knows what will happen to their life five months down the road in that year. 
+
+        Consider if you are a soldier of the American Marine stationed in a tiny Pacific Island at that time, and your trop are preparing to fight the next battle against the Japanese next week. What would come to your mind when you hear the lyrics: 
+
+“Chestnuts roasting on an open fire
+
+Jack Frost nipping at your nose
+
+Yuletide carols being sung by a choir
+
+And folks dressed up like Eskimos
+
+Everybody knows a turkey and some mistletoe
+
+Help to make the season bright
+
+Tiny tots with their eyes all aglow
+
+Will find it hard to sleep tonight” (Cole and Carmichael)
+
+No wonder Mel wrote this lyric on a July day. He needs Christmas so strongly and cannot wait till December. Not the Christmas of the coming December 1945, but a Christmas that everyone can come home and enjoy peace with their family, as what they have enjoyed before the damned WWII. 
+
+It had a very different atmosphere when the song was recorded and released in 1946. The Japanese surrendered in September 1945 (Itagaki et al.), less than two months after the lyrics were written. Whoever survived returned home. Many were still dealing with their grief, but nobody worried about the uncertainty of tomorrow on the same scale any more. Nat “King” Cole recorded this song in June 1946 (Lankford). He sang it with a very relaxed tone. Nat was born in 1919 (Teubig) so he was 27 years old when he recorded this song. When the general public heard that song in the public, it was November 1946, a very different kind of world than when it was written. The war was over for more than a year. It seems everyone is seeing a brighter future. The first batch of Baby Boomers just came to the world. 
+
+“And so I'm offering this simple phrase
+
+To kids from one to ninety-two
+
+Although it's been said many times, many ways
+
+Merry Christmas to you”
+
+“Merry Christmas to you” seems a simple phrase today and in that time, but not a simple one to many those just one year prior. At that time, it was still not an easy one who was still dealing with their loss at war. But what else can the singer offer beside that?
+
+### Works Cited
+
+Alexander, Joseph H. The final campaign: Marines in the victory on Okinawa. DIANE Publishing, 1996.
+
+Altenberg, Blake. In the Shadow of Shuri Castle: The Battle of Okinawa in Memory. Diss. Chapman University, 2019.
+
+Cole, Nat King, and Ralph Carmichael. The Christmas Song. Capitol, 1986.
+
+Itagaki, General Seishiro, et al. "Japanese surrender."
+
+Lankford, Ronald D. Sleigh Rides, Jingle Bells, and Silent Nights: A Cultural History of American Christmas Songs.
+        University Press of Florida, 2013.
+
+Nobbman, Dale V. Christmas Music Companion Fact Book: The Chronological History of Our Most Well-known
+        Traditional Christmas Hymns, Carols, Songs and the Writers & Composers who Created Them. Hal Leonard Corporation, 2000.
+
+Teubig, Klaus. Straighten Up and Fly Right: A Chronology and Discography of Nat King Cole. Bloomsbury Publishing USA, 1994.
+
+Wilson, Theodore A. "Götterdämmerung: War’s End in Europe, 1945." Between War and Peace: How America
+        Ends Its Wars (2011): 197-219.
 
 ### Comments to
