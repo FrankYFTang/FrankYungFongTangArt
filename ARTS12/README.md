@@ -44,7 +44,11 @@ I cannot agree with NH more on how creative Frank is with giving so many texture
 * [Self-Evaluation](Project2SelfEvaluation.pdf)
 * [All Images of Making The Work](https://photos.app.goo.gl/qo5whrMp1i14XZSp8)
 ### Feedback From Classmates:
- 
+* **From CC**: "
+  * Did the project activate the space and make the viewer look at the entire composition, or not?
+    * Yes, I actually want to look at the whole composition. I like that the background has these stripes that draw me in to the person that's front and center. The dark contrast of the binoculars has that as the focal point and everything else spreads out from there. The title at the bottom is framed to make it distinct and clean, as well.
+  * Did the project effectively use the visual charcteristics of a monochromatic color scheme to move the viewer through the space?
+    * This design piece runs through the whole spectrum of monochrome color scheme. The hair, clothing, and shading around the face and hands help frame the person in the center. The binoculars are a very focal element, highlighting how reading the news makes us more aware and curious of the world around us. The lighter tones in the lenses, hands, face, and hair help shape the person and objects as distinct and recognizable. There was clearly a lot of effort put into this!"
 ## Project Three
 ### Instruction from the professor:
 
