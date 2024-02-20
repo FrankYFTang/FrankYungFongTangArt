@@ -25,7 +25,7 @@ I am taking ARTS 8 Two-Dimensional Design in De Anza College during Winter 2024 
 * [Film Review](Project1Response.pdf)
 * Work-in-Progress Submission 
 * Final Painting Submission 
-* Self-Evaluation 
+* [Self-Evaluation](Project1SelfEvaluation.pdf)
 * All Images of Making The Work
 ## Project Two 
 ### Instruction from the professor:
@@ -35,7 +35,7 @@ I am taking ARTS 8 Two-Dimensional Design in De Anza College during Winter 2024 
 * [Film Review](Project2Response.pdf)
 * Work-in-Progress Submission 
 * Final Painting Submission 
-* Self-Evaluation 
+* [Self-Evaluation](Project2SelfEvaluation.pdf)
 * All Images of Making The Work
 ## Project Three
 ### Instruction from the professor:
@@ -45,7 +45,7 @@ I am taking ARTS 8 Two-Dimensional Design in De Anza College during Winter 2024 
 * [Film Review](Project3Response.pdf)
 * Work-in-Progress Submission 
 * Final Painting Submission 
-* Self-Evaluation 
+* [Self-Evaluation](Project3SelfEvaluation.pdf)
 * All Images of Making The Work
 ## Project Four
 ### Instruction from the professor:
