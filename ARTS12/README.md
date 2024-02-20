@@ -31,10 +31,10 @@ I am taking ARTS 8 Two-Dimensional Design in De Anza College during Winter 2024 
 ### Instruction from the professor:
 
 ### My Submission:
-* Preliminary sketches Submission
+* Preliminary Sketches Submission [1](https://photos.app.goo.gl/xvLLT5N49bzMs1hg6), [2](https://photos.app.goo.gl/WMh4uwPHv7CspHSc6)
 * [Film Review](Project2Response.pdf)
-* Work-in-Progress Submission 
-* Final Painting Submission 
+* [Work-in-Progress Submission](https://photos.app.goo.gl/R9CY9NoXGVVmg7vR9)
+* [Final Painting Submission](https://photos.app.goo.gl/aQrn8CHBk2QXqrD66)
 * [Self-Evaluation](Project2SelfEvaluation.pdf)
 * [All Images of Making The Work](https://photos.app.goo.gl/qo5whrMp1i14XZSp8)
 * 
