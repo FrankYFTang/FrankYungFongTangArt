@@ -21,8 +21,8 @@ I am taking ARTS 8 Two-Dimensional Design in De Anza College during Winter 2024 
 1. Now you are ready to begin preliminary sketches. Take two images from your brainstorming session and sketch them out on paper. These could be photos of your own or from the Internet. I will demonstrate using a shopping cart and a box from the food delivery service, Good Eggs. Is your intention to be neutral >> the images are the same size? Are you being accusational and one is bigger than the other? Are they both centered or are they pushed to the sides? You must divide your space exactly in half. However, this can be done horizontal, vertical, or on the diagonal. Remember that your job as a visual artist is to keep your viewer engaged. *REMEMBER GODARD = Your intention is to push the viewer to think. *I would review the Elements and Principles of Design in Module Week One for reference.  I have chosen to highlight "Inequality" by making my shopping cart red hot=EMERGENCY and it collides right into the neighboring space. I have chosen yellow to spell out Good Eggs but have spread it all over the space (and broken it up) to make the viewer move. Then to make it more visible I have outlined it in blue. In the end I have used Godard's directive of making the viewer think about what the two images have to do with one another. At the same time I have used the subtractive system primaries (red, yellow and blue) to activate the space (made it interesting).
 1. For your materials, you will be using one sheet of Bristol board, sized at 14” x 17”. You will be using three colors right from the jar, Ultramarine Blue (UB), Yellow Medium Azo (YMA), and Naphthol Red (NR). These are the power colors. How much you use of each color is your decision. Red is hot, Blue is cool, and Yellow is light in value. You cannot combine them. Your final painting will have a two-inch frame. *Finally, make sure to go over your preliminary lines that formed your border and dividing line with a black fine tip sharpie.
 ### My Submission:
-* Preliminary sketches Submission
-* Film Review
+* Preliminary Sketches Submission
+* [Film Review](Project1Response.pdf)
 * Work-in-Progress Submission 
 * Final Painting Submission 
 * Self-Evaluation 
@@ -32,7 +32,7 @@ I am taking ARTS 8 Two-Dimensional Design in De Anza College during Winter 2024 
 
 ### My Submission:
 * Preliminary sketches Submission
-* Film Review
+* [Film Review](Project2Response.pdf)
 * Work-in-Progress Submission 
 * Final Painting Submission 
 * Self-Evaluation 
@@ -42,7 +42,7 @@ I am taking ARTS 8 Two-Dimensional Design in De Anza College during Winter 2024 
 
 ### My Submission:
 * Preliminary sketches Submission
-* Film Review
+* [Film Review](Project3Response.pdf)
 * Work-in-Progress Submission 
 * Final Painting Submission 
 * Self-Evaluation 
