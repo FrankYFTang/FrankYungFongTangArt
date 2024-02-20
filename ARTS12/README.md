@@ -27,6 +27,30 @@ I am taking ARTS 8 Two-Dimensional Design in De Anza College during Winter 2024 
 * [Final Painting Submission](https://photos.app.goo.gl/8Be2fpQdqrBoDd437)
 * [Self-Evaluation](Project1SelfEvaluation.pdf)
 * [All Images of Making The Work](https://photos.app.goo.gl/ATCeXbjGWGDKpWNN9)
+
+### Feedback From Classmates:
+* From NH: "Hi Frank,
+
+Really great work with a clear concept behind it. I do love how you make use of everyday items in your art. They give natural textures that make me wonder how you create that kind of patterns. I appreciate the way you want to separate the upper high-income class against the living conditions of tramps. I believe you use all primary colors in both scenes for a cohesive picture, but I would appreciate if you manipulate them to evoke chaotic feelings for the lower part.  Also, since the same techniques are applied in both scenes, the sponge stamps on the house windows and the red lines of paper cuts make the upper scene look like it is as dirty as the lives under the bridge. Other than that, the rest of the rendering enhances their respective scenes. 
+
+Best regards,
+"
+* From BL: "Hi NH and Frank! 
+I cannot agree with NH more on how creative Frank is with giving so many textures in his painting! Frank did creatively interpret the objectives and guidelines in his painting by not simply filling out colors in shapes but using different tools to help him achieve a more interesting piece. Although I have to say, I love the idea of the different textures, but when I looked at the piece at first it looked a bit messy nothing really stood out to me. I think there can be more work done in terms of principles of design, especially work on contrast and emphasis, I think it would help Frank a lot to convey the message he wants to convey to the viewers! On the other hand, after carefully examining Frank's piece even before reading what he wrote, I could tell what the artist is trying to say about inequality in this country, which is between the rich and the poor. Overall, very nice analysis Nyi, and a very creative piece by Frank!
+"
+* From AL: "Answer to the prompts: 
+
+1. Did the project effectively use the visual characteristics of the primaries: red, yellow, and blue, to move the viewer through the space?
+
+2. What do you think the artist is trying to say about inequality in this country?
+
+Hi Frank Yung-Fong! 
+
+I'm truly captivated by the overall composition of your artwork. Even before reading your explanation, I was drawn to the diverse texture elements in the top and bottom paintings. Initially, I interpreted the house as a representation of staying home during COVID, and the second part symbolized the freedom to venture into nature post-COVID. However, your insightful explanation unveiled a deeper message about the coexistence of million-dollar homes and homelessness in the Bay Area.
+
+The addition of blue to the roof caught my eye, especially the seamless blend with the right side of the house, creating a visual connection and suggesting the presence of a tree in the bottom half. Your painting invites multiple interpretations, and I find myself analyzing various elements. I appreciate your explanation of the texture creation process, as it enhances my understanding of your work. I can imagine the considerable time and effort invested in this piece.
+
+I'm curious to know if you worked on this in a single day or over a span of a few days? I faced similar challenges with the opacity of the yellow, particularly in the background of my left side (you can scroll down to see mine). I am genuinely proud of your achievement, and I look forward to seeing more of your artwork throughout this quarter."
 ## Project Two 
 ### Instruction from the professor:
 
@@ -37,7 +61,8 @@ I am taking ARTS 8 Two-Dimensional Design in De Anza College during Winter 2024 
 * [Final Painting Submission](https://photos.app.goo.gl/aQrn8CHBk2QXqrD66)
 * [Self-Evaluation](Project2SelfEvaluation.pdf)
 * [All Images of Making The Work](https://photos.app.goo.gl/qo5whrMp1i14XZSp8)
-* 
+### Feedback From Classmates:
+ 
 ## Project Three
 ### Instruction from the professor:
 
@@ -48,6 +73,8 @@ I am taking ARTS 8 Two-Dimensional Design in De Anza College during Winter 2024 
 * [Final Painting Submission](https://photos.app.goo.gl/wNiK8dH6FypMAzH49)
 * [Self-Evaluation](Project3SelfEvaluation.pdf)
 * All Images of Making The Work
+### Feedback From Classmates:
+
 ## Project Four
 ### Instruction from the professor:
 
