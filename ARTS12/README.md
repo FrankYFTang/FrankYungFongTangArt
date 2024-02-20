@@ -52,6 +52,15 @@ I cannot agree with NH more on how creative Frank is with giving so many texture
     * Yes, I actually want to look at the whole composition. I like that the background has these stripes that draw me in to the person that's front and center. The dark contrast of the binoculars has that as the focal point and everything else spreads out from there. The title at the bottom is framed to make it distinct and clean, as well.
   * Did the project effectively use the visual charcteristics of a monochromatic color scheme to move the viewer through the space?
     * This design piece runs through the whole spectrum of monochrome color scheme. The hair, clothing, and shading around the face and hands help frame the person in the center. The binoculars are a very focal element, highlighting how reading the news makes us more aware and curious of the world around us. The lighter tones in the lenses, hands, face, and hair help shape the person and objects as distinct and recognizable. There was clearly a lot of effort put into this!"
+* **From ADR**:
+  * "Hi, Yungfong! I really liked your artwork. The bright colors and different shades make it very eye-catching.
+  * **Did the project effectively activate the space and draw the viewer's attention to the entire composition?**
+  * In my opinion, you used the space effectively. Although there is a lot to see in the painting, it doesn't distract from the main subject. It's evident that you put a lot of thought into each part of the painting.
+  * **Did you creatively interpret the objectives and guidelines, particularly the theme, of the project?**
+  * I think you did a great job interpreting the project and making it your own. As I mentioned before, you did a great job thinking over the piece. There is a lot of care put into it, from the choice of colors to the text to the binoculars. Overall, great job, and keep up the good work!"
+* **From XL**:
+  * Hi Yunfong, From your paintings, I feel your skillful use of color and your appropriate use of painting area. I can see that you use symmetrical designs to highlight the ideas you want to express, and you use solid colors. to activate the whole picture and make me feel inspired. Besides that, I can see that you used color to fill in the background of the picture, which makes the whole space more open and makes the viewer feel at ease.
+ 
 ## Project Three
 ### Instruction from the professor:
 
