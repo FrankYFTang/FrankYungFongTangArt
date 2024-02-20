@@ -36,7 +36,8 @@ I am taking ARTS 8 Two-Dimensional Design in De Anza College during Winter 2024 
 * Work-in-Progress Submission 
 * Final Painting Submission 
 * [Self-Evaluation](Project2SelfEvaluation.pdf)
-* All Images of Making The Work
+* [All Images of Making The Work](https://photos.app.goo.gl/qo5whrMp1i14XZSp8)
+* 
 ## Project Three
 ### Instruction from the professor:
 
