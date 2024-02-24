@@ -1,4 +1,5 @@
-# EWRT 1A HW2
+# EWRT1A Homework 2
+
 A. Read Brent Staples’ “Just Walk On By: A Black Man Ponders His Power to Alter Public Space” pages 233-236 in the 14th edition, pages 231-34 in the 15th edition of your Patterns for College Writing reader. If you have an E-book, this essay can be found in Chapter 8/Exemplification.  Write a summary sentence in which you mention the essay title in quotes, the author’s complete name, and the author’s message/thesis.
 Here is an example: In Brent Staples’ essay “Just Walk On By: A Black Man Alters Public Space,” he discusses how people reacted negatively to his walking the streets in the evening.
 
