@@ -1,4 +1,5 @@
-# EWRT 1A HW4
+# EWRT1A Homework 4
+
 A. The topic for your first essay is peer, parental, and/or social pressure. How do they affect you or someone you know? You will be referring to two of the readings you wrote about last week. For this HW assignment, write at least an 8-sentence paragraph regarding a personal and/or observational example about a specific incident that an outside influence pressured you or someone else (put in a name, even if you make it up). This is considered a creative writing assignment to prepare you for the upcoming essay due this Thursday. Read Melany Hunt’s student essay “Medium Ash Brown,” pages 270-272 in the 14th edition and pages 269-270 in the 15th edition, for inspiration and to see how she uses concrete, specify details, names, places, personal quotes.   If you have an E-book, this student essay can be found in Chapter 9/Process, or use Google Books.
 
 B. Write one personal quote you or someone else said. You can make it up. See page 52 (#5) and/or page 59 bottom (#4).  
