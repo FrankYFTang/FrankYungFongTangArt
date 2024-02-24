@@ -1,4 +1,4 @@
-# EWRT 1A HW3
+# EWRT1A Homework 3
 
 A. Read Martin Gansberg’s “Thirty-Eight Who Saw Murder Didn’t Call the Police” pages 126-129 in the 14th edition, pages 127-30 in the 15th edition. If you have an E-book, this essay can be found in Chapter 6/Narration.  Write a summary sentence in which you mention the essay title in quotes, the author’s complete name, and the author’s message/thesis.
 Here is an example:  Martin Gansberg, in his essay “Thirty-Eight Who Saw Murder Didn’t Call the Police,” wrote about a murder in 1964 when numerous people witnessed a woman being stabbed, yet they failed to get involved.
