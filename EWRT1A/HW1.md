@@ -1,0 +1,34 @@
+# EWRT1A Homework 1
+
+A. 	Read George Orwell’s “Shooting An Elephant” pages 131-137 in Patterns for College Writing (14th edition).  
+https://jerrywbrown.com/wp-content/uploads/2020/02/Shooting-An-Elephant-Orwell-George.pdf 
+This essay and the others can also be found online. Write a summary sentence in which you mention the essay title in quotes, the author’s complete name, and the author’s message/thesis.  
+Here is an example:  In George Orwell’s essay “Shooting An Elephant,” he writes about a time he had to do something he did not want to do.
+Then, copy four quotes from Orwell’s essay, citing the page number where the quote is found, and write a brief personal comment about your selected quote.  
+Here is an example:  Orwell stated, “When a nimble Burman tripped me up . . . the crowd yelled with hideous laughter” (131). How rude!   Those people must not have like the poor man.
+Note:  The three dots, called ellipsis, mean the writer left some words out.
+
+
+Note:   If you are using an online book or pdf, and the page numbers are different from the reader or there are no page numbers, please put such information after your selected cited quote in the parenthesis: “Quote” (PDF file) or “Quote” (Kindle) or “Quote” (Online).  
+B. Read Shirley Jackson’s “The Lottery” pages 304-310.
+https://learning.hccs.edu/faculty/tina.schwettmann/engl2342/shirley-jacksons-the-lottery/view 
+Write a summary sentence in which you mention the short story’s title in quotes, the author’s complete name, and the author’s message/thesis.   Note above example involving Orwell’s essay.  
+Then, copy four quotes from Jackson’s short story, citing the page number where the quote is found, and then write a brief personal comment about your selected quote.  Again, see the Orwell example above.
+*This +20#1 HW is due via Canvas by 9am on Thursday, September 28th.
+To help out, I gave an example of +20#1 HW at the end of this long email.  Please use it only as a model.
+Note 1:  We will be using the 2016 MLA 8th edition version for documentation.  In your reader, examples are viewed pages 737-739 (Section 18 “Documenting Sources: MLA”).  Also, you can reference Purdue Owl (MLA) on the internet.
+(There is a 2021 MLA 9th edition.  It is 99% the same as the 8th edition with no major changes, so just follow the examples given in the Patterns for College Writing 14th edition).	 
+Note 2:  When you introduce a writer’s quote, please practice altering verbs: Orwell observes/ed; illustrates/ed; implies/ed.  You can write your verbs in present or past tense.  Just be consistent.  Here is a list:
+acknowledges, adds, admits, agrees, argues, asks, asserts, believes, claims, comments, compares, confirms, contends, declares, defines, disputes, emphasizes, endorses, grants, illustrates, implies, insists, notes, objects, observes, points out, reasons, refutes, rejects, responds, reveals, states, suggests, thinks, views, writes.
+Last Note:  These two essays listed in A. and B. can also be found on the Internet if you don’t get Patterns for College Writing on time.   Still, get the book.  We will be referring to it often.
+
+## Part A: 
+In 1936, George Orwell wrote the story “Shooting an Elephant” about his internal struggles and moral conflicts, to avoid looking like a fool, leading him to shoot an Elephant that killed a coolie but seemed harmless when he arrived.
+1. Orwell opens his essay with a clear message about his “love hate relationship” with his authority and power as a white police officer who lives in a British colony: “I was hated by large numbers of people- the only time in my life that I have been important enough for this to happen to me.” (131) He dislikes the fact that he was hated by many but on the other hand he enjoys the moment of being noticed and respected by many. The feeling of being significant in the community controlled his decision making process in the rest of the story and made him drastically change his behavior from his original compassionate intellectual decision into a fear-driven people pleasing performance. 
+1. Orwell considers himself as part of a big joke with his words “I marched down the hill, looking and feeling a fool, with the rifle over my shoulder and an even growing army of people jostling at my heels.” (134)  He feels trapped in that condition- people in the community expect him to perform some dramatic act to showcase the power of his firing power. After he got the large elephant rifles, he got trapped into the expectation for ending the life of that elephant, even though he does not think that is necessary. He dug himself a hole while he got the larger rifle and carried that on his shoulder while walking toward the elephant. The larger and larger crowds of Burmans make him feel like a more difficult issue to handle than the mud on the field. He is now trapped, not by the mud, but by the crowds around him expecting a white police to showcase his authority by exercising armed force. 
+1. Orwell closes his essay with a brutal honesty “I often wondered whether any of the others grasped that I had done it solely to avoid looking a fool” (137) He exposes his internal vulnerability and struggles to the readers and admits that the real reason he kill that poor animal is only to protect his social image in front of two thousands native Burmans to avoid being laugh at in the future, as how he he experienced many times before. He is trading the life of that elephant for his dignity and deference in the British colony. 
+## Part B: 
+“The Lottery”, written by Shirley Jackson in 1948, describes an annual summer event in a small town where all the members of the town barbarously kill one citizen by following a civilized lottery selection process. 
+1. Jackson noted in the beginning of the novel: “in some towns there were so many people that the lottery took two days and had to be started on June 26th.” (304) This implies many different towns also are executing this “lottery” killing tradition so that it is not an unique one only followed by the community of this small town. 
+1. Jackson hints the readers that this brutal killing convention is widely employed in many places by the conversation between Mr. Adams and Old Man Warner-  “Mr. Adams said to Old Man Warner, … “ that over in the north village they’re talking of giving up the lottery.” … “Some places have already quit lotteries.” Mr. Adams said.” (308) These words suggest everywhere except “some places” are also exercising this brutal ritual on a regular basis. 
+1. Jackson suggests that the male children of the town are gladly anticipating this killing as “Bobby Martin had already stuffed his pockets full of stones, and the other boys soon followed his example, selecting the smoothest and roundest stones;” (304) It seems they are more than ready to throw the stones already, even if there is a chance that they themselves may “win” the lottery and be the target of the stone throwing.
