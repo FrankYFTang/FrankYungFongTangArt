@@ -75,7 +75,33 @@ I cannot agree with NH more on how creative Frank is with giving so many texture
 
 ## Project Four
 ### Instruction from the professor:
+#### The Television Age of Animation: 1958-1985
+#### Materials: Acrylic paint on Bristol board
+#### Objectives: 
+1. To use key elements and principles of design along with value and saturation in order to move the viewer through 2D space,
+2.  To create a composition that draws conceptual and aesthetic inspiration from the Television Age of Animation: 1958-1985,
+3. To define for yourself the connections between images and cultural values AND in particular how the climate crisis affects the world and the future of society.
 
+#### Viewing:
+1. History of Animation, 2014, TRT-24:14 https://www.youtube.com/watch?v=Sfzy05M-nzYLinks to an external site.
+ How to Be a Good Ancestor, Roman Krznaric, 2020, TRT-7:05 https://www.ted.com/talks/roman_krznaric_how_to_be_a_good_ancestor?language=en#t-399518.
+3. Harry Smith, Heaven and Earth Magic(excerpt), 1960, TRT-8:42 https://www.youtube.com/watch?v=Jh0vVK9LpZU.
+4. George Dunning, Yellow Submarine, 1969, Official Trailer, TRT-3:42 https://www.youtube.com/watch?v=vefJAtG-ZKI. 
+5. Réne Laloux, Les Escargots, 1966, TRT-11:13 https://www.youtube.com/watch?v=6lYsDhyUzy4 
+#### Process:
+1. First I would like you to watch documentaries #1 and #2 as an introduction to the project. Then you will need to watch all three shorts on the three animators to choose your inspiration for the project. They are all very different so take your time to watch them. Next I would like you to write a one-page response. (See required technical specs below) What were one or two things you learned about the Television Age of Animation: 1958-1985? Why did you choose the animator you did for the project?
+2.  Preliminary sketches. Now that you have chosen one animator for inspiration you will need to decide on a concept concerning the global climate crisis. After watching the video, How To Be A Good Ancestor, what do you want to say about our predicament? Will you propose solutions such as flying cars that don’t use fossil fuels or will you depict a meeting between earthlings and other planetary lives?
+3. You are creating a story board for a one-minute animated film. This is not the actual animation. This is the concept for your film. You would use this in your portfolio to communicate your idea and what happens.
+4. You will have six equal frames to depict your action. The elements of design are important here such as shape (what kinds of shapes) and space (where does the action happen, top to bottom or left to right?). The principles of design are also important, balance, rhythm/movement and emphasis to name a few.
+5.– For your materials, you will be using one sheet of Bristol board, sized at 14” x 17” and black and white acrylic paint. Your final painting will have six equal frames measuring 4” in height and 5” in width. I will illustrate this in my PowerPoint Presentation for you to view. You will also write a brief description of the action below each frame. I will also have this illustrated in my PowerPoint Presentation. Neatness matters!
+6. For your colors you will be choosing one of three color schemes. These schemes are all visually explained on the color wheel from your art kit. You can use as many tints, tones and shades as you want as well as desaturation. You cannot mix the colors from your scheme nor can you use pure black or white.
+#### Color Schemes
+
+* Analogous > Using three colors that are adjacent to each other on the color wheel. Example: Yellow-Orange, Yellow, Yellow-Green
+* Triad > Using three colors equally spaced from each other on the color wheel. Example: Orange, Violet and Green. (Do not use the primaries for this assignment)
+* Split Complementary > Using any color with the two colors on each side of its complement. Example: Green with Red-Orange and Red-Violet
+
+Make sure there are clean borders. You may have to cut your windows out of a clean piece of Bristol and place it over your painting.
 ### My Submission:
 * Preliminary sketches Submission
 * Film Review
