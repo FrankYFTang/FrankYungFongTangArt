@@ -1,4 +1,4 @@
-# Week 4 Journal - Artistic Elements
+# Week 4 Try This - Mondrian Painting
 ## Instruction
 
 The Task:
