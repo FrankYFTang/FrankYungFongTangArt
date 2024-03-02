@@ -67,10 +67,10 @@ I cannot agree with NH more on how creative Frank is with giving so many texture
 ### My Submission:
 * [Preliminary sketches Submission](https://photos.app.goo.gl/w9rpBojbAiJbBdKR7)
 * [Film Review](Project3Response.pdf)
-* Work-in-Progress Submission 
+* [Work-in-Progress Submission](https://photos.google.com/share/AF1QipN2jOhVKvqvT-gJOSQQwDpbJnngJs96WLFaZ3rP_rWfgFuaWROw1Iomo9dcurmuzQ/photo/AF1QipNo31zPtD5hje3YVgor2Mj9Q4KreM81FrZpbK56?key=REFTeS1jSThBbm00Si03d29GdDZpeGJKUGhqR1VR)
 * [Final Painting Submission](https://photos.app.goo.gl/wNiK8dH6FypMAzH49)
 * [Self-Evaluation](Project3SelfEvaluation.pdf)
-* All Images of Making The Work
+* [All Images of Making The Work](https://photos.app.goo.gl/NgjdDngU3N87A4L86)
 ### Feedback From Classmates:
 
 ## Project Four
