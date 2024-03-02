@@ -126,7 +126,7 @@ What is Pop Art?, TRT – 10:00 https://www.youtube.com/watch?v=g0RzaHwv_UM.
 
 #### Viewing:
 1. History of Animation, 2014, TRT-24:14 https://www.youtube.com/watch?v=Sfzy05M-nzYLinks to an external site.
- How to Be a Good Ancestor, Roman Krznaric, 2020, TRT-7:05 https://www.ted.com/talks/roman_krznaric_how_to_be_a_good_ancestor?language=en#t-399518.
+2. How to Be a Good Ancestor, Roman Krznaric, 2020, TRT-7:05 https://www.ted.com/talks/roman_krznaric_how_to_be_a_good_ancestor?language=en#t-399518.
 3. Harry Smith, Heaven and Earth Magic(excerpt), 1960, TRT-8:42 https://www.youtube.com/watch?v=Jh0vVK9LpZU.
 4. George Dunning, Yellow Submarine, 1969, Official Trailer, TRT-3:42 https://www.youtube.com/watch?v=vefJAtG-ZKI. 
 5. Réne Laloux, Les Escargots, 1966, TRT-11:13 https://www.youtube.com/watch?v=6lYsDhyUzy4 
