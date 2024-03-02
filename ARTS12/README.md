@@ -38,6 +38,35 @@ I cannot agree with NH more on how creative Frank is with giving so many texture
   * Hi Frank Yung-Fong! I'm truly captivated by the overall composition of your artwork. Even before reading your explanation, I was drawn to the diverse texture elements in the top and bottom paintings. Initially, I interpreted the house as a representation of staying home during COVID, and the second part symbolized the freedom to venture into nature post-COVID. However, your insightful explanation unveiled a deeper message about the coexistence of million-dollar homes and homelessness in the Bay Area.The addition of blue to the roof caught my eye, especially the seamless blend with the right side of the house, creating a visual connection and suggesting the presence of a tree in the bottom half. Your painting invites multiple interpretations, and I find myself analyzing various elements. I appreciate your explanation of the texture creation process, as it enhances my understanding of your work. I can imagine the considerable time and effort invested in this piece.I'm curious to know if you worked on this in a single day or over a span of a few days? I faced similar challenges with the opacity of the yellow, particularly in the background of my left side (you can scroll down to see mine). I am genuinely proud of your achievement, and I look forward to seeing more of your artwork throughout this quarter."
 ## Project Two 
 ### Instruction from the professor:
+#### I READ THE NEWS TODAY
+#### Materials: Acrylic paint on Bristol board
+#### Objectives: 
+1. To use key elements and principles of design in conjunction with a monochromatic color scheme to move the viewer through 2D space,
+1. To examine how the media industry presents contemporary events with truth and accuracy
+1. To define for yourself the connections between images and cultural values AND in particular misinformation and disinformation in the media   
+1. To use the work of graphic designer, Tibor Kalman, as inspiration for the project.
+#### Viewing:
+1. A Brief History of Graphic Design, 2020, TRT-7:42 https://www.youtube.com/watch?v=tixZZ_YMOfE .
+1. Tibor Kalman: The Bad Boy of Design, https://www.youtube.com/watch?v=w1HsFCirNW0 .
+1. Interview with Tibor Kalman by Charlie Rose, Tibor Kalman talks about design, https://www.youtube.com/watch?v=nt692akLXbc .
+1. The Social Dilemma, Trailer, 2020. https://www.youtube.com/watch?v=rvg0eY_Ls4Y .
+#### Process:
+1. First I would like you to watch the videos above. Tibor Kalman (July 6, 1949-May 2, 1999) was an American graphic designer Links to an external site.of Hungarian origin, well known for his work as editor-in-chief of Colors. What were one or two things Kalman talked about regarding design that sparked your interest. Did he prompt you to think differently about the field of graphic design? Also, in light of the recent failed attempt to carry out a coup d’etat two years ago against the United States by domestic terrorists, how do you make sense of the event and the use of “sedition” to define it? I realize this may be uncomfortable to address but I think this country is at a sea change. Education, being informed and critical thinking must all play a part to better understand how we move forward as a democratic society. The ability to differentiate between what is true and what is false is crucial. The reason I chose Kalman as inspiration for this project is because “he influenced other designers to think in terms of their place in the world—their role toward society and toward the furtherance of design culture.” Now I would like you write a one-page response.
+* I encourage you to watch the full movie of The Social Dilemma on Netflix.
+2. For this project you will be designing the front page for your own news magazine. You will choose one to three words that communicate your personal viewpoint reflecting the purpose of news journalism. Your choice will include font style from those listed on the Project Inspiration Page. You will also choose one image that also communicates your idea of journalism’s purpose. You are welcome to use an image from the internet but make sure to simplify it. Color choice is important as well as all the elements and principles of design. If you were given this as a job what would you do? How do you think the news should be presented? As an example, I chose the word, Democracy and my image is the torch from the Statue of Liberty. Other ideas are “Just the Facts” or “Up To The Minute” or “All The News” or "Truth and Accuracy". Remember Art Matters!
+* Research is important here. I would immediately look at home pages of newspapers, magazines, blogs, podcasts and anything else related for their use of font, layout, and color.
+* It's also important to acknowledge that Google, Facebook, Twitter, Apple and YouTube  are not news producers. A good place to start in deciding where to get your news about the world is Presswatchers.org
+3. For your materials, you will be using one sheet of Bristol board, sized at 14” x 17”. You will choose one color form the 12-step color wheel and use it to paint in a monochromatic scheme. You will be mixing twelve values of your color: four tints, four tones, and four shades. You are welcome to use a color right from the bottle or you can mix it.
+Choose carefully because the darker the original color the darker it will get when making your shades.
+* Tints = color + white
+* Tones = color + grey
+* Shades = color + black
+
+You must use all the values at least once. There can be no pure black or white.
+
+Your final painting will have a two-inch Bristol board frame. This makes your painting area 10” x 13”.
+
+Make sure to outline your painting edge with black sharpie.
 
 ### My Submission:
 * Preliminary Sketches Submission [1](https://photos.app.goo.gl/xvLLT5N49bzMs1hg6), [2](https://photos.app.goo.gl/WMh4uwPHv7CspHSc6)
