@@ -1,4 +1,4 @@
-# Week 4 Explore Art and Social Realism
+# Week 5 Explore Art and Social Realism
 ## Instruction
 Your goal in this exercise is to locate a current example of a billboard, a photograph, or a poster that clearly conveys a social message. Visit this website to learn more about social realismLinks to an external site.. Review the concepts and be prepared to explain how your selected image connects social concerns with artistic presentation.
 
