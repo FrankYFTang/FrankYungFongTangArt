@@ -30,19 +30,19 @@ Beside the works by Chuck Close, I really love the works by Georgia O’Keeffe, 
 
 I will continue to paint more portraits, most likely more self portraits. I will explore using a wider variety of medium and viewing angles. I would like to adopt O’Keeffe’s big flower approach to paint the face with a “zoom in” composition and only paint part of a face. I will try to better utilize collage in my portraits making.
 
-2018-04-23-21-10_001.jpg
+![My Stepfather, 2018, Watercolor on paper](https://lh3.googleusercontent.com/pw/AP1GczNwG0CxGh2hF54-9e0dNz0NWABfqwD_EhMZ6KcXuXro3kVdfQoBZJxxMcJiHqVpcGhc-QcpR8dWIYlHqz6Qs0eLO9Gpdx3qILl3Ia4Kf8JO_b0eEYIHsMxDk8Nj7KU5QelV67ORFz3ykg_uWjPKGLpwHA=h500-no)
 
 My Stepfather, 2018, Watercolor on paper
 
-2018-04-23-21-09_001.jpg
+![My Stepfather, 2018, Acrylic on paper](https://lh3.googleusercontent.com/pw/AP1GczNirFEQ8ZhhIJ_qxIhhJmmfDSndRvhaZOEGv-CQvuEHC_kSksxmRepFX59h9SakShTaAmMeJkkqrxsxtieq3NxeU2-_WWGUiOD4GXlXF9wT6knXhs-yEVbZreykFewxjSD7zwJeB-27JRS7SRveXTU57g=h500-no)
 
 My Stepfather, 2018, Acrylic on paper
 
-2018-05-03-23-53_001 (1).jpg
+![My Mom when She Was Young, 2018, Coffee on paper](https://lh3.googleusercontent.com/pw/AP1GczPq8GZt5qtEypNxa1YB7B4lRGBMKpGfNTRNjcpF5I_KI7N9eUg5Qi3DSAvkJ_UYD7J9WvolV3AtCABd_sqzc9YR2HAuQY8vxACu_OeC_OAXqG4Qo93_xenIoKsB87FftrIOMTOL7J8DVF10JVQmODrawg=h300-no)
 
 My Mom when She Was Young, 2018, Coffee on paper
 
-2018-04-23-21-07_001 (2).jpg
+![My Mom and I, 2018, Watercolor on paper](https://lh3.googleusercontent.com/pw/AL9nZEUt2WG_StkIWF3-lEh_TYqoDhnWx06L847KH6wdak16atAXIYykGIjZnx9UWejgTEE_RDCnRPncJ4onZprQ8kdLR5PIyip94LoHY2ruNGx7T-WTWZSuSe0SGshzCg3vUDf1lqPEmEKO5dm8i1z3lEVjfQ=h300-no)
 
 My Mom and I, 2018, Watercolor on paper
 
