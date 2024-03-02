@@ -37,19 +37,19 @@ Vincent, Isabel. “Questions Linger about Wartime Past of Klimt Art That Sold f
 
 (All the photos were took by the author Frank Yung-Fong Tang on May 16, 2023)
 
-PXL_20230516_155612571.jpg
+![Fig. 1](https://lh3.googleusercontent.com/pw/AP1GczOCyz937J-6tD5LtPurXepCSsF8wXMhu-2B3USZYITUqOzNpQgVr6haIoHt8LDSC9qOqO_CpPHeorN5rtB7qUm05M52m5Kzd6ZUf1fzt8hQU3Str4a-WUsefs8Zrku9gq1Ijm8ObDoRhzsvIkKc835_Ug=w500)
 
 Fig. 1: Author with ‘Insel Im Attersee’ (1901-2), Gustav Klimt in Sotheby’s New York City, May 16, 2023, hours before the auction.
 
-PXL_20230516_155617019.jpg
+![Fig. 2](https://lh3.googleusercontent.com/pw/AP1GczPnjoC783mdbJXxDwTk4G9rgEQ00fm9XiAwS8llqp9NHm-baI1StDEYAxk0FY_J-5v5JUpUyzcEMa4-wZ5bBu89z_UlzSI3eMFLNgX9swlvmkOssjrUB67ghRZZbMiygVGhaPy4aC19gSxfptfdHVltcA=w500)
 
 Fig. 2: Front view of ‘Insel Im Attersee’ (1901-2), Gustav Klimt
 
-PXL_20230516_155632349.jpg
+![Fig. 3](https://lh3.googleusercontent.com/pw/AP1GczOIXL_XzZyjGHxWA4iHUj7aCckUotsGASbXfAFRQxPAE5L88ZqsSZIvjkyZ27dwNK6WqvayDIoiDY7W-eDJaSOjH9d9YUJVG6fWsfLMqf8YchENKlWi-yYgz3mdtlQGtpbKwRd4Ok5yl0zxN2IXvYZyuA=w500)
 
 Fig. 3: Details of the lower right corner of ‘Insel Im Attersee’ (1901-2), Gustav Klimt
 
-PXL_20230516_155636525.jpg
+![Fig. 4](https://lh3.googleusercontent.com/pw/AP1GczOxopCYGAbhUk5Ncx8s0J0NukGjr4f-C-6EoNVDipGFh-beGux2L5BZ1m8CWqRTGsidoPD3SWzq3cIkV4tOD1GEM1ymb3pYTfnukxYoACgaxiKu4zUB8iQAMgfyxypbfHq2LaiAf-qTzECkdM1ErwlAMQ=w500)
 
 Fig. 4: Details of the upper left portion of ‘Insel Im Attersee’ (1901-2), Gustav Klimt
 
