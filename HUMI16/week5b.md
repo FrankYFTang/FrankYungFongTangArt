@@ -14,6 +14,7 @@ Statute of Limitation (Fig. 2-7), is a blue and black human size ceramic sculptu
 ### Illustrations
 
 ![Fig 1](https://lh3.googleusercontent.com/pw/AP1GczOoRcQPFyomrtcZhLMg07bnffPL9C2D_EyMv--Z7KHjbIvfw00KGNwbV6uSaNlCsFSUDoueojRc4PQeDh1GyusEBuZrDK58PNHd_MG1VH_x2NDouPrgoU2d5Vj9nG3bLJl5stGGpoq81qGZNLglgqMl-w=w500)
+
 Fig. 1: The author, Frank Yung-Fong Tang, and the artist, Chukes together during the Jan 20, 2024 afternoon Artist Reception in Triton Museume of Arts, City of Santa Clara, for his Solo Exhibition "Identiy Theft and Beyond" 
 
 ![Fig 2](https://lh3.googleusercontent.com/pw/AP1GczNnlCr87TmG2cvtj3Ku3LttBoB-XVWMRAA9WVAEZ0lj1mlhdH4F6FPGiMsKL9h2PoNT-Y3R1lQog9dP01-F0bWP8pPT7UPj88u3oXnzr2HVIMnQ7UWSk2A_HDI8nHoEPjnfl8QIi8XBk8Kc5m-cP0991A=w300)
