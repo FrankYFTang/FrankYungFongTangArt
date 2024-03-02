@@ -93,6 +93,19 @@ Make sure to outline your painting edge with black sharpie.
 ## Project Three
 ### Instruction from the professor:
 
+#### POP ART: Serious Fun!
+#### Materials: Acrylic paint on Bristol board
+#### Objectives: 
+1. To use key elements and principles of design along with value and saturation in order to move the viewer through 2D space,
+1. To create a composition that draws conceptual and aesthetic inspiration from the Pop Art Movement,
+1. To define for yourself the connections between images and cultural values AND in particular how Pop Art can be used to comment on today’s fanatical consumer society.
+#### Viewing: 
+What is Pop Art?, TRT – 10:00 https://www.youtube.com/watch?v=g0RzaHwv_UM.
+#### Process:
+1. First I would like you to watch the short documentary above. Then I would like you to write a one-page response. (See required technical specs below) What were two or three things that sparked your imagination about Pop Art and its origins?  Where do you see the influences of Pop Art today? Movies, graphics, advertisements?
+2. You will be making a piece of Pop Art. Your inspiration can come from any and all of its history, both British and American versions. Remember that both schools of thought were commenting, to a large extent, on consumer culture. So you will need to pick a popular consumer object such as your cell phone and make some Serious Fun! out of it. You can see my “PowerPoint Presentation: Thumbnails to Paint” for my example.
+3. For your materials, you will be using one sheet of Bristol board, sized at 14” x 17” with your painting sized at 12” x 15”. You will be painting your idea twice on one sheet of bristol – once in a warm color and once in a cool color. You can use as many tints, tones and shades as you want as well as pure black and white. All colors must be de-saturated to some extent. Don’t forget to outline your final paintings with a black sharpie.
+
 ### My Submission:
 * [Preliminary sketches Submission](https://photos.app.goo.gl/w9rpBojbAiJbBdKR7)
 * [Film Review](Project3Response.pdf)
