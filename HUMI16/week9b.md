@@ -4,14 +4,14 @@
 ### THE TASK:
 ## Submission
 
-[Explore Architectur and Film](Week10%20Explore%20Art%20of%20the%2020th%20Century.pdf)
+[Explore Architectur and Film](Week9%20Explore%20Art%20of%20the%2020th%20Century.pdf)
 
 ### Comments
-* [Comments to Kaite/Jo/Enrique](Week10%20Comments1.pdf)
-* [Comments to Jo](Week10%20Comments2.pdf)
-* [Comments to Betzy](Week10%20Comments3.pdf)
-* [Comments to Mitra](Week10%20Comments4.pdf)
-* [Comments to Julissa](Week10%20Comments5.pdf)
+* [Comments to Kaite/Jo/Enrique](Week9%20Comments1.pdf)
+* [Comments to Jo](Week9%20Comments2.pdf)
+* [Comments to Betzy](Week9%20Comments3.pdf)
+* [Comments to Mitra](Week9%20Comments4.pdf)
+* [Comments to Julissa](Week9%20Comments5.pdf)
 
 
 ## Score: 40/40
