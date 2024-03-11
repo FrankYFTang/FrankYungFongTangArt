@@ -19,7 +19,7 @@ Select one architectural example and write a brief answer in response to the que
    
 ## Submission
 
-
+[Journal Architecture](Week6%20Journal%20-%20Architecture.pdf)
 
 ## Score: 25/25
 ## Feedback:
