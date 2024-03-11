@@ -1,7 +1,28 @@
 # Week 9 Explore Art of the 20th Century
 ## Instruction
 
-### THE TASK:
+
+curation sample of art in the 20th century assignment.pngContent curation is the gathering, organizing and online presentation of content related to a particular theme or topic. In these exercises, the class will be curating a collection of related materials by selecting content to share. The collection will be built around ideas drawn from the curriculum.
+
+When it comes to summarizing the art of the twentieth century - there's a lot to consider. The term modern art has come to denote the innovating and even revolutionary developments in Western painting and the other visual arts since the second half of the 19th century. Embracing a wide variety of movements, styles, theories, and attitudes, the modernity of which resides in a common tendency to repudiate past conventions and precedents in subject matter, mode of depiction, and painting technique alike - applies with particular force to the painting of the last 150 years.
+
+Back in the early 90s a graphic artist named Joan Gratz decided to create a short film called Mona Lisa Descending a Staircase in which she sought to compile and morph 100 of the most recognizable artworks of the 20th century. It was a great success, and at the time, demonstrated a groundbreaking graphic design technique. Watch the video by clicking the link below:
+
+http://www.youtube.com/watch?v=4J-ypC8M35oLinks to an external site.
+
+
+The video is named in part for one of the more controversial cubist compositions by Marcel Duchamp (Nude Descending a Staircase). No doubt you recognized many of the art pieces we've looked at during the quarter as the images on the video morphed from one to the next. Overall, this is an interesting way to visually summarize the class content.    
+
+### The Task:
+1. Select an image of an artwork from one of your favorite modern artists - try not to duplicate each other. Post the image and include the artist's name as well as the date of creation - share how this particular work displays power, influences society, and/or effects change. (20 points)  
+3. Your post should be a minimum of 250+ words and you should cite resources used. (5 points)
+4. Leave substantive* comments on THREE (3) other student posts – select ones who wrote about different examples than you selected. Use this as an opportunity to learn what they have to share. Each comment should be a minimum of 75+ words. (5 points each)
+
+This assignment is worth 40 points.
+
+*Substantive comments extend the conversation, ask a question, or offer an observation – strive to create a dialogue. Comments that consist of only praise will be awarded 20% of points or less. 
+
+
 ## Submission
 
 [Explore Art of the 20th Century](Week9%20Explore%20Art%20of%20the%2020th%20Century.pdf)
