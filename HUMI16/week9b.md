@@ -1,10 +1,10 @@
-# Week 10
+# Week 9 Explore Art of the 20th Century
 ## Instruction
 
 ### THE TASK:
 ## Submission
 
-[Explore Architectur and Film](Week9%20Explore%20Art%20of%20the%2020th%20Century.pdf)
+[Explore Art of the 20th Century](Week9%20Explore%20Art%20of%20the%2020th%20Century.pdf)
 
 ### Comments
 * [Comments to Kaite/Jo/Enrique](Week9%20Comments1.pdf)
