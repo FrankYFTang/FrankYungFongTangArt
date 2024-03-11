@@ -1,4 +1,4 @@
-# Week 8
+# Week 8 Try This - Thematic Collage
  
 ## Instruction
 In the video posted below you'll learn about an art technique called collage. Learn more about the differences between collage and similar techniques at the Tate MuseumLinks to an external site.. Then, let's explore this method of combining and modifying a little further.
