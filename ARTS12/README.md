@@ -145,9 +145,9 @@ What is Pop Art?, TRT – 10:00 https://www.youtube.com/watch?v=g0RzaHwv_UM.
 
 Make sure there are clean borders. You may have to cut your windows out of a clean piece of Bristol and place it over your painting.
 ### My Submission:
-* Preliminary sketches Submission
-* Film Review
-* Work-in-Progress Submission 
+* [Preliminary sketches Submission](https://photos.app.goo.gl/WSYybU94Do24HFXW8) 
+* [Film Review](Project4Response.pdf)
+* [Work-in-Progress Submission](https://photos.app.goo.gl/B8H6554PcLex7qZWA) 
 * Final Painting Submission 
-* Self-Evaluation 
-* All Images of Making The Work
+* [Self-Evaluation](Project4SelfEvaluation.pdf) 
+* [All Images of Making The Work](https://photos.app.goo.gl/kPgvsdrnnhZLRMKB6)
