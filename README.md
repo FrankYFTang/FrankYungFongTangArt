@@ -48,8 +48,8 @@ Below are links to some arts I made since 2018
 ## Papers Submission for Other Courses took in De Anza College
 * [ECON 1 Principles of Macroeconomics](ECON1) (Spring 2013)
 * [ECON 2 Principles of Microeconomics](ECON2) (Fall 2013)
-* EWRT 1A
-* COMM 10
+* [EWRT 1A Composition and Reading](EWRT1A) (Fall 2023)
+* [HUMI 16 Arts, Ideas & Values] (Winter 2024)
 
 
 ## Poems
