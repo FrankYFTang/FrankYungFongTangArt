@@ -26,7 +26,7 @@ Explore the Google Cultural InstituteLinks to an external site.. Browse through 
 
 ## Submission
 [Self-Portrait with a Straw Hat, Vincent van Gogh 1887/1887](Week10Spotlight%20on%20Humanities.pdf)
-## Score: ?/25
+## Score: 25/25
 ## Feedback:
 
-?
+Thanks for spotlighting this particular example of the humanistic tradition! There is such an overwhelming amount of visual artwork available online now that having the ability to browse huge collections like this opens up opportunities to explore new interests. I look forward to showcasing this in a future class - great work!
