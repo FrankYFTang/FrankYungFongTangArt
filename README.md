@@ -42,10 +42,14 @@ Below are links to some arts I made since 2018
 * [ARTS 4A Beginning Drawing](ARTS4A) (Spring 2023)
 * [ARTS 2J History of Art: Arts of Africa, Oceania and Native North America](ARTS2J) (Fall 2023)
 * [ARTS 4B Intermediate Drawing](ARTS4B) (Fall 2023)
-
+* [ARTS 12 Design and Color](ARTS12) (Winter 2024)
+* ARTS 53 Introduction to Graphic Design: Vector Illustration
+* ARTS 54 Introduction to Graphic Design: Digital Imaging
 ## Papers Submission for Other Courses took in De Anza College
 * [ECON 1 Principles of Macroeconomics](ECON1) (Spring 2013)
 * [ECON 2 Principles of Microeconomics](ECON2) (Fall 2013)
+* EWRT 1A
+* COMM 10
 
 
 ## Poems
