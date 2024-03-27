@@ -1,4 +1,4 @@
-# Week 10
+# Week 10 Explore Public Art
 ## Instruction
 Content curation is the gathering, organizing and online presentation of content related to a particular theme or topic. In these exercises, the class will be curating a collection of related materials by selecting content to share. The collection will be built around ideas drawn from the curriculum.
 
@@ -16,9 +16,9 @@ The term public art properly refers to works of art in any media that have been 
 [The Orb, Marc Fornes / Theverymany, 2022](Week10%20Explore%20Public%20Art.pdf)
 
 ### Comments
-[Comment to Jo](Week10%20Comment%20Jo.pdf)
-[Comment to Julie](Week%2010%20Comment%20Julie.pdf)
-[Comment to Kailan](Week%2010%20Comment%20Kailan.pdf)
+* [Comment to Jo](Week10%20Comment%20Jo.pdf)
+* [Comment to Julie](Week%2010%20Comment%20Julie.pdf)
+* [Comment to Kailan](Week%2010%20Comment%20Kailan.pdf)
 
 
 ## Score: 40/40
