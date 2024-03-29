@@ -151,3 +151,9 @@ Make sure there are clean borders. You may have to cut your windows out of a cle
 * [Final Painting Submission](https://photos.app.goo.gl/bF7t5q1yiWAfLKWK7) 
 * [Self-Evaluation](Project4SelfEvaluation.pdf) 
 * [All Images of Making The Work](https://photos.app.goo.gl/kPgvsdrnnhZLRMKB6)
+
+
+### Feedback From Classmates:
+* **From KP**: Hi Yungfong Tang, your drawing is incredibly colorful, and it's evident that you've put a lot of effort into it. The storyboard you've created is visually stunning, with each color carefully chosen to complement the overall composition. Not only are the colors aesthetically pleasing, but they also contribute to conveying a realistic message through your art. Your attention to detail and the thoughtful selection of colors truly bring your drawings to life.
+
+* **From IP**: What an outstanding piece of work! Your dedication and effort shine through the moment one lays eyes on this creation. The meticulous attention to detail, masterful use of color, and captivating composition hold the viewer's interest until the very last frame. You've skillfully captured the atmosphere of the 1970s. Furthermore, the structured storytelling based on facts presents complex issues in an easily understandable manner. Your creativity undoubtedly places you at the forefront of our class.
