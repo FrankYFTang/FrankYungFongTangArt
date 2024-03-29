@@ -13,4 +13,4 @@ I took HUMI 16 Arts, Ideas & Values in De Anza College during Winter 2024 (Janur
 * **Week 9** [Journal - Our World](week9a.md) / [Explore Art of the 20th Century](week9b.md)
 * **Week 10** [Spotlight on Humanities](week10a.md) / [Explore Public Art](week10b.md)
 * **Week 11** [Artist Profile Project](week11a.md) / [Navigating Art & Visual Culture](week11b.md)
-* **Extra Credit Option** Visit a Local Gallery or Museum 
+* **Extra Credit Option** [Visit a Local Gallery or Museum](extra.md)
