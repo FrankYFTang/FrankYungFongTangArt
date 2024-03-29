@@ -114,16 +114,12 @@ What is Pop Art?, TRT – 10:00 https://www.youtube.com/watch?v=g0RzaHwv_UM.
 * [Self-Evaluation](Project3SelfEvaluation.pdf)
 * [All Images of Making The Work](https://photos.app.goo.gl/NgjdDngU3N87A4L86)
 ### Feedback From Classmates:
-* **From AL**: "
-#### Comment Questions:
-
+* **From AL**: "Comment Questions:
 1. Did the project effectively use the visual characteristics of value plus (de)saturation of colors to move the viewer through the space?
-
 2.  Did the artist creatively interpret the project's theme? How?
-
 Hello Frank,
+I think you did a fantastic job portraying the monumental brand "Tesla" in a pop art essence, and you followed Professor Rodriguez's theme instructions by creating a piece representing a topic from today's consumer society. Tesla's are seen everywhere, making them attractive to everyone. They're simplistic yet futuristic, and your design correlates well with the simple yet fun patterns you created. The 3-dimensional subdivided triangular shapes, along with the correct amount of desaturated warm and cool tints, tones, and shades, make viewers like me feel as if it's a building, allowing the logo to stand out and guiding the viewer through the space of the composition. It's a very nice touch of detail. Additionally, adding the desaturated tint circles in the background adds a fun appeal, making the overall design visually appealing."
 
-I think you did a fantastic job portraying the monumental brand "Tesla" in a pop art essence, and you followed Professor Rodriguez's theme instructions by creating a piece representing a topic from today's consumer society. Tesla's are seen everywhere, making them attractive to everyone. They're simplistic yet futuristic, and your design correlates well with the simple yet fun patterns you created. The 3-dimensional subdivided triangular shapes, along with the correct amount of desaturated warm and cool tints, tones, and shades, make viewers like me feel as if it's a building, allowing the logo to stand out and guiding the viewer through the space of the composition. It's a very nice touch of detail. Additionally, adding the desaturated tint circles in the background adds a fun appeal, making the overall design visually appealing.
 * **From ADO**: "Hi Andrea, I agree with your analysis, it fits the assignment that we had to do. The idea of making the piece about something that we see constantly, especially in California. The tints and hues of the painting make the piece come to life it gives it that warm welcoming and then a cool technological feel. I do agree with you that the piece is very nice and visually appealing."
 
 ## Project Four
