@@ -1,4 +1,4 @@
-# Week 11
+# Week 11 Artist Profile Project
 Instructions for the Artist Profile Project
 Artists often produce work that reflect events and obstacles in their personal lives. Learning about these influences can help a viewer to see an artist’s work from an entirely different perspective. Biographical details such as place of residence, marriages, children and employment can alter our view of an artist’s work, as well as make them seem more like ourselves. In this assignment you will select an artist to research and create a profile of their personal life as well as their professional accomplishments. This is less like writing a paper and more like making a visual scrapbook. I want to learn about the artist but I also want to SEE their work. If you make a slide presentation and save it as a PDF file it works quite nicely!
 
