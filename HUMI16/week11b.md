@@ -22,7 +22,7 @@ All session long I’ve encouraged you to leave substantive comments on other pe
 ## Submission
 [Five Self-Portraits, 2023](Week%2011%20Navigating%20Art%20%26%20Visual%20Culture.pdf)
 
-## Score: 25/25
+## Score: 40/40
 ## Feedback:
 Thanks for sharing your response! It’s fun to learn why a specific art form or piece of work is important to a person – it offers a tiny insight to personality and values. Since that’s been one of our primary focuses in this course, I think the example you provided says something about the impact of visual culture on both art and individuals. Excellent work! This was a really neat process seeing your same composition in different mediums. The watercolor is my favorite because I like the warmer tones but they are all wonderful.
 
