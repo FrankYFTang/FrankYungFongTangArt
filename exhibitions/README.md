@@ -7,5 +7,5 @@ In reverse chronological order
 
 * De Anza Student Art Show @ Euphrat Museum of Art 2024
 * [The Gospel of John @ PBCC](PBCC2023.md) (10/1/2023 - 1/14/2024)
-* [Who IS This Child? @ PBCC](PBCC2018b.md) 2018
-* [The Body of Christ: Unity in Diversity @ PBCC](PBCC2018a.md) 2018
+* [Who IS This Child? @ PBCC](PBCC2018b.md) (11/11/2018 – 1/6/2019)
+* [The Body of Christ: Unity in Diversity @ PBCC](PBCC2018a.md) (8/26/2018 - 10/22/2018)
