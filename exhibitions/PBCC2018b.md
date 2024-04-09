@@ -1,6 +1,5 @@
 # Who IS This Child? @ PBCC
-Images
-* Date: November 11, 2018 - 
+* Date: November 11, 2018 – January 6, 2019
 * Location: Peninsula Bible Church Cupertino, 10601 N Blaney Ave, Cupertino, CA 95014
 ## "A young refugee child fled to Egypt to avoid massacre" (2018)
 * Relevant Portion of Scripture: Matthew 2:13-21, Matthew 35:31-46
