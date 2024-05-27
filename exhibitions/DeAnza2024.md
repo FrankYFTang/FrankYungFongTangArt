@@ -1,4 +1,4 @@
-# De Anza Student Art Show 2024 @ De Anza College Euphrat Museum of Art 
+# [De Anza Student Art Show 2024 @ De Anza College Euphrat Museum of Art ](https://www.deanza.edu/euphrat/current.html)
 * Date: May 7 - June 6, 2024
 * Location: Euphrat Museum of Art, De Anza College, 21250 Stevens Creek Blvd, Cupertino, CA 95014
 * [All the paintings in the show](https://photos.app.goo.gl/8kgWuEzXgiFVP46q8)
