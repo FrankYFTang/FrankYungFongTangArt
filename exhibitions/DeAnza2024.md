@@ -2,6 +2,8 @@
 * Date: May 7 - June 6, 2024
 * Location: Euphrat Museum of Art, De Anza College, 21250 Stevens Creek Blvd, Cupertino, CA 95014
 * [All the paintings in the show](https://photos.app.goo.gl/8kgWuEzXgiFVP46q8)
+*  "Self-Portrait" (2023, Chalk Pastel won [Drawing Award](https://www.youtube.com/watch?v=5MU5Yd2lDsg) 
+ 
 ## "Annunciation" (2023)
 * Size: 12x15 w/o frame, 18x22 w/ frame
 * Medium: Mixed Media (Micron Pen, Color Ink Pen, Pencil, Brusho, Acrylic paint, and collage on paper)
@@ -12,7 +14,7 @@ The angel Gabriel in this work is depicted as a figure with a claw hammer as bod
 * Size: 12x15 w/o frame, 20x26  w/ frame
 * Medium: Chalk Pastel
 * [Image](https://photos.app.goo.gl/fn1NzKMhtbZxhP5y5)
-* [Drawing Award](https://www.youtube.com/watch?v=5MU5Yd2lDsg) 
+
 
 How Georgia O’Keeffe rendered flowers in close up inspired me to render my self-portrait from a child looking up wormview to express a “private intimate image” of me.
 ## "Self-Portrait" (2023)
