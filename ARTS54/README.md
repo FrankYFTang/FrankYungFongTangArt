@@ -8,6 +8,7 @@ puzzle-student.psd exercise
 chapter 3 exercise
 
 ## Week 2 Discussion
+grid exercise
 
 ## Week 2 How to create texture on paper?
 ### Instruction:
@@ -28,7 +29,6 @@ Here are the two photos of total 6 textures I experimented.
 [Photo 2](https://lh3.googleusercontent.com/pw/AP1GczOQA9I4QTIwReB9FECw8rTOMKOP4cqE4U81OaFh-YngdND-7JT6QS0lY2KPRuywFWBcE6Qgl3BNrGKkculucF0hkkfJWrzsDIc8Rhq2pRKttz6fZzpFm6-SD9Yp327v45O0sFnRV91WGA-_Ft-ax7LcZg=w365-h275-s-no-gm): From the Left
 1. Election Guide of 2024 California Primary, crumpled, tore up, and glued on paper
 1. a copy paper, folded vertically, then glue on paper
-
 
 ## Week 3 Assignment
 
