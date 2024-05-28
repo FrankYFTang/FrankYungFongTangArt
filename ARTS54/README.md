@@ -18,16 +18,16 @@ Let's play! How do you create texture on paper? I will give you the most obvious
 ### Submission
 Here are the two photos of total 6 textures I experimented. 
 
-[Photo 1](https://photos.fife.usercontent.google.com/pw/AP1GczMuZc7mCPZjmac4iH7aGKL1BqvA-pwVKmcGWOOqyphy35qNYjLlovsPWw=w482-h1100-s-no-gm): From the Top
+[Photo 1](https://lh3.googleusercontent.com/pw/AP1GczNPjsbjh62UZtYutBovcG7vxAjh2bUZWIlZArP6Cyn7qpa4j6jFfojzhi6Zq4QZ4hgkoqOvQPRG2EgwUELCWpkzJiN5-Bzp3Irpc0pwgABJWSK8g6dCpOaIQdjr4rbXHCfAG6zne9Tojy1BLeC21RiknA=w240-h550-s-no-gm): From the Top
 
-a. A mask glue on paper. 
-b. Toilet paper glue on paper
-c. A copy paper, scratched by compressed charcoal against gravels ground, tore up, and glue on paper
-d. Crumpled aluminum foil glue on paper
+1. A mask glue on paper. 
+1. Toilet paper glue on paper.
+1. A copy paper, scratched by compressed charcoal against gravels ground, tore up, and glue on paper.
+1. Crumpled aluminum foil glue on paper.
 
-[Photo 2](https://photos.fife.usercontent.google.com/pw/AP1GczPQ13pRnOFNQ40T0a9W-SusVpQBFseHB1PEHBVYRPYhTSFzlSVIvRgcJg=w1460-h1100-s-no-gm): From the Left
-e. Election Guide of 2024 California Primary, crumpled, tore up, and glued on paper
-f. a copy paper, folded vertically, then glue on paper
+[Photo 2](https://lh3.googleusercontent.com/pw/AP1GczOQA9I4QTIwReB9FECw8rTOMKOP4cqE4U81OaFh-YngdND-7JT6QS0lY2KPRuywFWBcE6Qgl3BNrGKkculucF0hkkfJWrzsDIc8Rhq2pRKttz6fZzpFm6-SD9Yp327v45O0sFnRV91WGA-_Ft-ax7LcZg=w365-h275-s-no-gm): From the Left
+1. Election Guide of 2024 California Primary, crumpled, tore up, and glued on paper
+1. a copy paper, folded vertically, then glue on paper
 
 
 ## Week 3 Assignment
