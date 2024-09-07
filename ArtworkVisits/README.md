@@ -29,6 +29,7 @@ This page lists links pointing to Museum and Art Galleries I visited:
   * [Triton Salon 2024](https://photos.app.goo.gl/GuFpcfuznX5RUBc59)
 * De Anza College, Cupertino, California
   * [Euphrat Museum of Art, De Anza College](https://photos.app.goo.gl/et5jWq31eBCDTepC9)
+    * [De Anza Student Art Show 2024](https://photos.app.goo.gl/8kgWuEzXgiFVP46q8)
   * [De Anza College ADM building](https://photos.app.goo.gl/wGUcDYSUegLe5iRV9)
   * [Turtle](https://photos.app.goo.gl/QJ8yLmveB8QDPBhu9)
   * [Rabbits](https://photos.app.goo.gl/FjA8CyXJWsSNTvNw5)
