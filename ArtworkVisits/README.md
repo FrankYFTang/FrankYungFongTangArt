@@ -15,12 +15,13 @@ This page lists links pointing to Museum and Art Galleries I visited:
 * [Papua New Guinea Sculpture Garden](https://photos.app.goo.gl/u4uq7gKx9Ykkdjtf7), Stanford, California
 * [San Francisco's Mission District Murals](https://photos.app.goo.gl/BBovYJ1ZieECe5FX6), San Francsisco, California
 * [Legion of Honor](https://photos.app.goo.gl/h5MzNRduWNqm6oMJ6), San Francsisco, California
-* [de Young, Fine Arts Museum Of SF](https://photos.app.goo.gl/1h4Q4Cnd2K6sD5Fb8), San Francsisco, California
+* [de Young](https://photos.app.goo.gl/1h4Q4Cnd2K6sD5Fb8), San Francsisco, California
   * [PNG Arts @ de Young](https://photos.app.goo.gl/tkBsZkcU5MF4fBZHA)
   * [African Masks @ de Young](https://photos.app.goo.gl/MAJULjJPLQoLoNc7A)
   * [Leilah Babirye- We Have a History](https://photos.app.goo.gl/8UyvHNavtD1fTnou7)
   * [Ruth Asawa Scupltures @ de Young](https://photos.app.goo.gl/YFwFP9RjrdwSNkgK8)
   * [Scupltures Garden@ de Young](https://photos.app.goo.gl/UKfHHwBuJhSbhgVm7)
+* [BAMPFA (Berkeley Art Museum and Pacific Film Archive)](https://photos.app.goo.gl/SxjTcmtJaYLhra2H7), Berkeley, California
 * [San Jose Museum of Art](https://photos.app.goo.gl/Py57GArqEia1koj26), San Jose, California
 * [Scottish Rite Temple](https://photos.app.goo.gl/SbMxjSUNvMZgzT9B9), San Jose, California
 * [Arts in Camel-by-the-Sea](https://photos.app.goo.gl/abiZ3uzq9RXoQJt1A), Carmel-by-the-Sea, California
