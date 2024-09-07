@@ -6,7 +6,6 @@ This page lists links pointing to Museum and Art Galleries I visited:
 ## California (Northern)
 * [Cantor Arts Center at Stanford University](https://photos.app.goo.gl/tr5DioHGEzwnLT2U8) , Stanford, California
   * Auguste Rodin's Works
-  * North Pacific Native American Arts
   * [Oceania Arts](https://photos.app.goo.gl/gKNrzmYmQknoPzpW8)
   * [Native American Arts](https://photos.app.goo.gl/TRamqaRQTd34YCFH6)
   * [African Arts](https://photos.app.goo.gl/S9jkUDQLQ6HmySVn9)
