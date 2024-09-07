@@ -26,6 +26,7 @@ This page lists links pointing to Museum and Art Galleries I visited:
 * [Scottish Rite Temple](https://photos.app.goo.gl/SbMxjSUNvMZgzT9B9), San Jose, California
 * [Arts in Camel-by-the-Sea](https://photos.app.goo.gl/abiZ3uzq9RXoQJt1A), Carmel-by-the-Sea, California
 * [Triton Museum](https://photos.app.goo.gl/j29LGKoGfGf5Kk318), City of Santa Clara, California
+  * [Triton Salon 2024](https://photos.app.goo.gl/GuFpcfuznX5RUBc59)
 * De Anza College, Cupertino, California
   * [Euphrat Museum of Art, De Anza College](https://photos.app.goo.gl/et5jWq31eBCDTepC9)
   * [De Anza College ADM building](https://photos.app.goo.gl/wGUcDYSUegLe5iRV9)
