@@ -1,5 +1,5 @@
 # Museums and Art Galleries Visited
-Copyright (c) 2023, Frank Yung-Fong Tang
+Copyright (c) 2023-2024, Frank Yung-Fong Tang
 
 This page lists links pointing to Museum and Art Galleries I visited:
 
@@ -27,6 +27,11 @@ This page lists links pointing to Museum and Art Galleries I visited:
 * [Arts in Camel-by-the-Sea](https://photos.app.goo.gl/abiZ3uzq9RXoQJt1A), Carmel-by-the-Sea, California
 * [Triton Museum](https://photos.app.goo.gl/j29LGKoGfGf5Kk318), City of Santa Clara, California
   * [Triton Salon 2024](https://photos.app.goo.gl/GuFpcfuznX5RUBc59)
+  * [John Cerney- Tall Tales](https://photos.app.goo.gl/x5tjxVi4LWQfNiKi6)
+  * [Yunan Ma- An Ode to Planets](https://photos.app.goo.gl/W3j2CFwMQ3tbsM7W6)
+  * [Chukes - Identity Theft and Beyond](https://photos.app.goo.gl/SfDke77WZE5ke7cv8)
+  * [Ayesha Samdani- Layers and Splashes](https://photos.app.goo.gl/UycUAAJWCoz2kf4n7)
+  * [Michelle Gregor - Place of Leaves](https://photos.app.goo.gl/bUSS64GBsw8WHBsg9)
 * De Anza College, Cupertino, California
   * [Euphrat Museum of Art, De Anza College](https://photos.app.goo.gl/et5jWq31eBCDTepC9)
     * [De Anza Student Art Show 2024](https://photos.app.goo.gl/8kgWuEzXgiFVP46q8)
