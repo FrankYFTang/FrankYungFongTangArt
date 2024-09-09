@@ -10,7 +10,7 @@ This page lists links pointing to Museum and Art Galleries I visited:
   * [Native American Arts](https://photos.app.goo.gl/TRamqaRQTd34YCFH6)
   * [African Arts](https://photos.app.goo.gl/S9jkUDQLQ6HmySVn9)
   * East of the Pacific: Making Histories of Asian American Art (September 28, 2022–February 12, 2023)
-  * Morris Hirshfield Rediscovered (September 6, 2023–January 21, 2024)
+  * [Morris Hirshfield Rediscovered](https://photos.app.goo.gl/EX6bccBnuhMFPs93A) (September 6, 2023–January 21, 2024)
 * [Anderson Collection](https://photos.app.goo.gl/ZafZxLmjXDEXfJJR7), Stanford, California
 * [Papua New Guinea Sculpture Garden](https://photos.app.goo.gl/u4uq7gKx9Ykkdjtf7), Stanford, California
 * [San Francisco's Mission District Murals](https://photos.app.goo.gl/BBovYJ1ZieECe5FX6), San Francsisco, California
