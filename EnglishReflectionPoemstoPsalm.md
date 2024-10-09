@@ -1,7 +1,7 @@
 # English Reflection Poems 
 Copyright (c) 2016-2024, Frank Yung-Fong Tang
 
-The peoms in this page is ordered in reverse chronological order
+The peoms in this page are ordered in reverse chronological order
 
 ## Reflection Poem after reading the whole Gospel of Mark
 Oct 8, 2024
