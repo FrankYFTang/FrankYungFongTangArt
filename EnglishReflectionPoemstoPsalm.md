@@ -47,7 +47,7 @@ Nov 7, 2016
 
 The day before 2016 US Presidential Election
 
-To all Rule Keeping Christian
+### To All Rule Keeping Christian
 ```
 There is 		an appropriate day 	for everything. 
 And there is 	a day 			for all conditions ruled by Our Creator—
