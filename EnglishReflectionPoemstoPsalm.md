@@ -1,5 +1,101 @@
-# English Reflection Poems after Reading Psalms
-Copyright (c) 2016, Frank Yung-Fong Tang
+# English Reflection Poems 
+Copyright (c) 2016-2024, Frank Yung-Fong Tang
+
+The peoms in this page is ordered in reverse chronological order
+
+## Reflection Poem after reading the whole Gospel of Mark
+Oct 8, 2024
+
+* What were your expectations for the Kingdom?
+  * The Kingdom of God will come soon.
+
+* Have you been disappointed? In what way?
+  * No. Somehow I wish the Kingdom of God would not come that soon.
+
+* Have you been surprised? How?
+  * Yes, The Kingdom of God has not come yet.
+
+### Where is the Kingdom of God?
+```
+Am I really longing for the Kingdom of God?
+I wonder
+To be honest
+A place I hesitate to enter
+How could I face the Almighty?
+in that Holy Realm?
+
+The mystery of the Kingdom of God
+Do I really know it?
+See and perceive
+Hear and understand
+How many more I missed?
+
+Receive like a child
+That is my only hope
+
+But a child has no expectation
+They do not care about expectation
+That is a concept for adults to talk about
+Too difficult for a child to think
+They will only long for what they want
+And won’t waste their time talking about expectations.
+Or write a poem like this!
+```
+
+## Reflection Poem of Ecclesiastes 3:1-8
+Nov 7, 2016 
+
+The day before 2016 US Presidential Election
+
+To all Rule Keeping Christian
+```
+There is 		an appropriate day 	for everything. 
+And there is 	a day 			for all conditions ruled by Our Creator—
+A day to 	protect life			and 	a day to 	preserve freedom;
+A day to 	care for unborn 		and 	a day to 	respect free will.
+A day to 	embrace diversity		and 	a day to 	maintain natural value;
+A day to 	welcome the outcasts	and 	a day to	prevent intrusion.
+A day to 	secure the border		and 	a day to 	show grace to refugees;
+A day to 	safeguard our family	and 	a day to 	take risks to love mercy.
+A day to 	defend domestic jobs 	and 	a day to 	leverage foreign opportunities;
+A day to 	trade				and 	a day to 	enjoy the fruits of our own labor.
+A day to 	vocally campaign		and 	a day to 	rest in silence;
+A day to 	support			and 	a day to 	withdraw.
+A day for 	the establishment	and 	a day to 	write in;
+A day to 	cast vote			and 	a day to 	wait for the result.
+A day to 	volunteer			and 	a day to 	sit in the sideline;
+A day to	debate the politics	and 	a day for 	longing for His second coming.
+```
+
+## Reflection Poem of Psalm 1
+Oct 19, 2016
+
+My parents are very old. My stepfather is now 94. He grew up in Christian orphanage and has known the Lord since. My mom is 82. She is not a believer. She got a stroke in April and is right side paralyzed. They show me two different views of facing age and death.
+```
+How peaceful is the one who 
+does not 	climb 	in the hills	 	of the sceptics,
+Nor 		wonder 	in the bushes	of doubters,
+Nor 		rest 		in the valley 	of rebels!
+
+But his hope is 		in the promise 	of the Shepherd,
+And 				in His promise 	the one relax from dawn to dusk.
+
+He will be like 	a ram 	joyfully fed by plenty of grass,
+Which 	extends 	its horns 	in early spring
+And 		its wool 	does not shed;
+And 				in whatever he possesses, 	he contents.
+The sceptics are not so,
+
+But they are like 	bunnies 	that the rumble tremble away.
+
+Therefore 
+the sceptics will not 	drink	 	from the pond,
+Nor doubters 				from the fountain of the Mercy.
+
+For the Shepherd leads 	the path of		His sheep,
+But 				the path of 	the sceptics 	lead to depression
+```
+
 
 ## Reflection Poem of Psalm 114 based on the story in the book of Esther/NKJV
 April 12, 2016
@@ -76,42 +172,6 @@ For 			Lord’s Judgement & Kingdom	may soon 	befall.
 How peaceful 	is the one who 			conceals 	in the Almighty!
 ```
 
-## Reflection on Psalm 117 - 1
-April 2, 2016
-```
-Trust almighty God, all my friends;
-Depend on Him, all repentant sinners!
-For His mercy is prepared for us,
-And the grace of God endures forever.
-Trust almighty God!
-```
-## Reflection on Psalm 117 - 2
-April 6, 2016
-```
-Worship our God, everyone;
-Exalt Him, all who are depressed!
-For His power and sovereignty rules the world,
-And the might of Him is perpetual.
-Worship our God!
-```
-## Reflection on Psalm 117 - 3
-April 9, 2016
-```
-Remember our Creator, all creature;
-Engrave Him, every life!
-For His power and strength is what sustain us,
-And the force of the Creator fills the universe.
-Remember our Creator!
-```
-## Reflection on Psalm 117 - 4
-April 12, 2016
-```
-Rely on the Mighty One,  my soul;
-Cry to Him, my heart!
-For His strength and wisdom is prepared for us,
-And the timing of the Mighty One is always right.
-Rely on the Mighty One!
-```
 ## Reflection on Psalm 117 - 5
 April 14, 2016
 ```
@@ -121,6 +181,31 @@ For His blessing is beyond our imagination,
 And the promise of the Faithful One never fail.
 Sing to the Faithful One
 ```
+
+## Reflection on Psalm 117 - 4
+April 12, 2016
+```
+Rely on the Mighty One,  my soul;
+Cry to Him, my heart!
+For His strength and wisdom is prepared for us,
+And the timing of the Mighty One is always right.
+Rely on the Mighty One!
+```
+
+
+## Reflection on Psalm 117 - 3
+April 9, 2016
+```
+Remember our Creator, all creature;
+Engrave Him, every life!
+For His power and strength is what sustain us,
+And the force of the Creator fills the universe.
+Remember our Creator!
+```
+
+
+
+
 
 ## Reflection on Psalm 116
 April 7-9, 2016
@@ -186,55 +271,23 @@ Thank Sweet Savior!
 ```
 I was depressed by my rage toward my loved one when I wrote this reflection poem. I am out of control of my emotions and blame my loved ones for something they did not deserve. I had no sensibility toward other’s feelings and frequently hurt others around me. I felt I am such a failure and hopeless to bless others close to me. I need the affirmation from God to show me His power and glory is greater than my sinful nature and ignorance and I will eventually be changed by Him to be a gentle and merciful person like Him.
 
-## Reflection Poem of Psalm 1
-Oct 19, 2016
 
-My parents are very old. My stepfather is now 94. He grew up in Christian orphanage and has known the Lord since. My mom is 82. She is not a believer. She got a stroke in April and is right side paralyzed. They show me two different views of facing age and death.
+## Reflection on Psalm 117 - 2
+April 6, 2016
 ```
-How peaceful is the one who 
-does not 	climb 	in the hills	 	of the sceptics,
-Nor 		wonder 	in the bushes	of doubters,
-Nor 		rest 		in the valley 	of rebels!
-
-But his hope is 		in the promise 	of the Shepherd,
-And 				in His promise 	the one relax from dawn to dusk.
-
-He will be like 	a ram 	joyfully fed by plenty of grass,
-Which 	extends 	its horns 	in early spring
-And 		its wool 	does not shed;
-And 				in whatever he possesses, 	he contents.
-The sceptics are not so,
-
-But they are like 	bunnies 	that the rumble tremble away.
-
-Therefore 
-the sceptics will not 	drink	 	from the pond,
-Nor doubters 				from the fountain of the Mercy.
-
-For the Shepherd leads 	the path of		His sheep,
-But 				the path of 	the sceptics 	lead to depression
+Worship our God, everyone;
+Exalt Him, all who are depressed!
+For His power and sovereignty rules the world,
+And the might of Him is perpetual.
+Worship our God!
 ```
-## Reflection Poem of Ecclesiastes 3:1-8
-Nov 7, 2016 
 
-The day before 2016 US Presidential Election
-
-To all Rule Keeping Christian
+## Reflection on Psalm 117 - 1
+April 2, 2016
 ```
-There is 		an appropriate day 	for everything. 
-And there is 	a day 			for all conditions ruled by Our Creator—
-A day to 	protect life			and 	a day to 	preserve freedom;
-A day to 	care for unborn 		and 	a day to 	respect free will.
-A day to 	embrace diversity		and 	a day to 	maintain natural value;
-A day to 	welcome the outcasts	and 	a day to	prevent intrusion.
-A day to 	secure the border		and 	a day to 	show grace to refugees;
-A day to 	safeguard our family	and 	a day to 	take risks to love mercy.
-A day to 	defend domestic jobs 	and 	a day to 	leverage foreign opportunities;
-A day to 	trade				and 	a day to 	enjoy the fruits of our own labor.
-A day to 	vocally campaign		and 	a day to 	rest in silence;
-A day to 	support			and 	a day to 	withdraw.
-A day for 	the establishment	and 	a day to 	write in;
-A day to 	cast vote			and 	a day to 	wait for the result.
-A day to 	volunteer			and 	a day to 	sit in the sideline;
-A day to	debate the politics	and 	a day for 	longing for His second coming.
+Trust almighty God, all my friends;
+Depend on Him, all repentant sinners!
+For His mercy is prepared for us,
+And the grace of God endures forever.
+Trust almighty God!
 ```
