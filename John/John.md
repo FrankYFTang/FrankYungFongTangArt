@@ -1,4 +1,6 @@
 # 約翰福音再思
+Copyright (c) 2024, Frank Yung-Fong Tang
+
 
 ## MIGA
 2024-10-3
