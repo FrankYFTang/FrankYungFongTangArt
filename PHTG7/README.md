@@ -80,6 +80,22 @@ This should include the title of the video you watched, who the artist is and wh
 * **Teacher Feedback:** Though I would like you to have discussed 1 or 2 specific images of Titarenko's, you have done a great job, Yungfong. I am glad that you enjoyed the work of Alexey Titarenko and Arnold Newman. These are very good discussions and I get the feeling that you really looked at and thought about the work of these two fairly different photographers.
 
 ## Assignment 4 Motion
+### Instruction: 
+Make two images of the same moving subject: one showing (a blur of) motion, the second stopping or freezing the motion.
+Make two images: one showing the motion of a moving subject, the second stopping or freezing the motion of a moving object. This set need not be of the same subject.
+Make two images of two different subjects, using panning to show/stop motion.
+ 
+
+For the first set of images you will photograph the same moving subject twice: in the first you will use a slow shutter speed to show a blur of motion, and in the second you will use a fast shutter speed to stop or freeze the motion. (Remember to use equivalent exposures to ensure that the images are correctly exposed.)
+For the second set of images you will do the same thing(s) as above, but you do not have to use the same subject in each image.
+In the third set of images you will not be stopping motion. By panning--following the moving subject with your camera as you release the shutter--you will be showing motion by having the background appear in motion instead of the subject. This is another way of showing motion. Use a relatively slow shutter speed for panning: try 1/25-1/30.
+ 
+
+Use the “Manual” or the “Shutter Priority” (or TV) mode
+Do not use the "Auto" mode
+Do not use your flash!
+
+
 * [Submission](https://photos.app.goo.gl/a97YTETvybkF2ezS7)
 * Classmate Feedback: 
   * **Natalie Nguyen:**  Hi Yungfong, your photos amazed me because of how clear the quality of your camera is! I thought your pictures were great and matched the instructions of the assignment perfectly. Great job! 
