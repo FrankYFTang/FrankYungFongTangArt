@@ -3,19 +3,52 @@ I took PHTG7 Exploring Visual Expression in De Anza College during Fall 2024 (Se
 
 ## Assignment 1 Color, Pattern, Curve and Shadow
 
-* [Submission](https://photos.app.goo.gl/PVbeu51MFG3hgpom7)
-* Instruction: Go out into the world and find subjects that exemplify these categories. Experiment! Change your vantage point or your angle of view; come in close; look at things or people or places that you might not otherwise consider "image-worthy"! Shoot lots of images! You can sort them afterwards. Think about the images in terms of these categories. For example: all color images have color in them (that's pretty obvious, right?), but that doesn't mean that the image is "about" color, or that it exemplifies color. You will also find that some, or perhaps many (!), of your images can be placed in more than one category: think about which category it best exemplifies. Check out the example images--almost all of which were shot by previous students!
+### Instruction: 
+Go out into the world and find subjects that exemplify these categories. Experiment! Change your vantage point or your angle of view; come in close; look at things or people or places that you might not otherwise consider "image-worthy"! Shoot lots of images! You can sort them afterwards. Think about the images in terms of these categories. For example: all color images have color in them (that's pretty obvious, right?), but that doesn't mean that the image is "about" color, or that it exemplifies color. You will also find that some, or perhaps many (!), of your images can be placed in more than one category: think about which category it best exemplifies. Check out the example images--almost all of which were shot by previous students!
   * Color 
   * Pattern 
   * Curve 
   * Shadow 
 
+* [Submission](https://photos.app.goo.gl/PVbeu51MFG3hgpom7)
 * Classmate Feedback: 
   * **Philip Ossenbruggen:** Your pattern shadow and curve look good although the color picture could be brighter. I noticed that all of your pictures could fit under the pattern section.
   * **Sett Htoo:** You bring art to daily things that are ordinary. As if you slowed down time to appreciate a moment. These are awesome.
 * **Teacher Feedback:** You have done an excellent job on all of these images, Frank. You have played around with distance, angle of view and perspective very nicely. My favorite is the "TurtleBuddyAndI", however!
 
 ## Assignment 2 Depth of Field
+### Instruction: 
+Depth of Field is the area or amount of space in the image that is in focus. Specifically, it is the amount of space in front of and behind the point of focus that is in focus. By adjusting certain mechanisms or situations you can change the depth of field, or the amount of space that is in focus.
+
+The primary way that photographers change the depth of field in an image is by changing the size of the aperture. The smaller the aperture (the larger the f/stop number), the greater the depth of field will be. That is, the more will be in focus. The larger the aperture (the smaller the f/stop number) the shallower the depth of field will be. That is, the less will be in focus.
+
+The second way of changing depth of field is to change the focal length of the lens. When you zoom the lens you increase the focal length of the lens. The longer the focal length of the lens, the shallower the depth of field will be. The shorter or wore wide angle the lens, the greater the depth of field will be.
+
+The third way of changing the depth of field is to change the distance from the subject, or point of focus. The closer the subject is to the camera, the shallower the depth of field will be. The farther the subject is from the camera, the greater the depth of field will be.
+
+Note: Changing the depth of may change the composition of the image: if you change the focal length of the lens, or change the distance from the subject, you change the amount of information that is recorded. Think about the composition that you have in mind, and the effect(s) these things may have on the image you are making.
+
+The Assignment:  Read This Before You Begin the Assignment!!!
+
+Find or construct three different settings with space and physical elements going back in the frame. This means that you can either look around for a space that naturally meets this requirement, or you can arrange subjects and objects so that they meet this requirement. (See examples in the "Depth of Field" Module.)
+
+For each situation, you will make one set of two images, one showing shallow depth of field, one showing great depth of field. This means you are to make three sets of two images: a total of six images. Use one of the three things that affect depth of field for each set, i.e. for the first set change the aperture, and keep the point of focus, the focal length of the lens and the distance from subject unchanged. For the second set change the focal length of the lens, and keep the aperture and the distance from subject unchanged. For the third set change the distance from subject, and keep the aperture and the focal length of the lens unchanged. In each set keep the point of focus the same, i.e. focus on the same spot.
+
+Use the extremes for each factor: f/2 and f/22; the widest angle and the most telephoto settings of your lens; move in very close to the point of focus, then back way up.
+
+Do not use flash.
+Do not use the “Auto” or “Program” modes.
+
+For Submission:
+
+* Create a new folder entitled with your name, first and last, and “Assignment #2”.
+* Within that folder create three new folders, one for each set of images.
+* Entitle them with their respective subjects, i.e. “Aperture”, "Focal Length of Lens", "Distance from Subject"
+* Within each of these folders you will place the corresponding images.
+* Entitle each image descriptively in terms of the settings you used, etc. (see example above).
+* “ZIP” (compress) your folder and submit the "ZIP" file to Canvas.
+
+
 * [Submission](https://photos.app.goo.gl/NQsnAn6pym9ZaNSx6)
 * Classmate Feedback: 
   * **Albert Gomez:** Hi Yungfong, Nice photos. I think you fulfilled the requirements of the assignment fine. I like the selection of the dog and the pine cone. Nice and clear photos.
