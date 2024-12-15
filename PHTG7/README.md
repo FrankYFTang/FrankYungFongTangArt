@@ -106,6 +106,30 @@ Do not use your flash!
   * Set 3: Great job, Frank! Both images show the Panning effect beautifully. I particularly like how the "Redshopper's" feet are moving faster than her body.
 
 ## Assignment 5 Favorite Things, etc.
+### Instruction: 
+
+Make (a minimum of) 6 Images.
+
+#### Set #1: Favorite things
+
+* Food
+* Place
+* Object
+* Person
+ 
+#### Set #2:
+
+* Something that inspires you
+* Something that disturbs you
+ 
+
+Please feel free to make more than 6 images--6 is just the minimum!
+
+Think about how you want to show these things, and how you will convey your meaning to the viewer. Try not to be too literal!
+
+I know that, given our present situation, you may not be able to physically access some of these subjects. Do your best—and use your imagination…!
+
+
 * Submission [Images](https://photos.app.goo.gl/nZcaXLW6asPKHukV8) [Paper](https://docs.google.com/document/d/1qb83v5mSl0kujX5mKw1OlKfm1KTX3jD1kskgHaD6A6o)
 * Classmate Feedback: 
   * **Kimia Kooshkbaghi:** Hi Yung, great job on sharing your thoughts and the pictures! I really like how you included a picture of yourself as your favorite person—it’s a wonderful way to show self-love and confidence. I also enjoyed seeing the place. As for the college building, I understand why it disturbs you—it’s really sad that it is being ruined. I also had the same feeling.
