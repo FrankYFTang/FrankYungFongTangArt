@@ -3,6 +3,7 @@ I took PHTG7 Exploring Visual Expression in De Anza College during Fall 2024 (Se
 
 ## Assignment 1 Color, Pattern, Curve and Shadow
 
+* [Submission](https://photos.app.goo.gl/PVbeu51MFG3hgpom7)
 * Classmate Feedback: 
   * **Philip Ossenbruggen:** Your pattern shadow and curve look good although the color picture could be brighter. I noticed that all of your pictures could fit under the pattern section.
   * **Sett Htoo:** You bring art to daily things that are ordinary. As if you slowed down time to appreciate a moment. These are awesome.
