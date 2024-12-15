@@ -4,6 +4,12 @@ I took PHTG7 Exploring Visual Expression in De Anza College during Fall 2024 (Se
 ## Assignment 1 Color, Pattern, Curve and Shadow
 
 * [Submission](https://photos.app.goo.gl/PVbeu51MFG3hgpom7)
+* Instruction: Go out into the world and find subjects that exemplify these categories. Experiment! Change your vantage point or your angle of view; come in close; look at things or people or places that you might not otherwise consider "image-worthy"! Shoot lots of images! You can sort them afterwards. Think about the images in terms of these categories. For example: all color images have color in them (that's pretty obvious, right?), but that doesn't mean that the image is "about" color, or that it exemplifies color. You will also find that some, or perhaps many (!), of your images can be placed in more than one category: think about which category it best exemplifies. Check out the example images--almost all of which were shot by previous students!
+  * Color 
+  * Pattern 
+  * Curve 
+  * Shadow 
+
 * Classmate Feedback: 
   * **Philip Ossenbruggen:** Your pattern shadow and curve look good although the color picture could be brighter. I noticed that all of your pictures could fit under the pattern section.
   * **Sett Htoo:** You bring art to daily things that are ordinary. As if you slowed down time to appreciate a moment. These are awesome.
