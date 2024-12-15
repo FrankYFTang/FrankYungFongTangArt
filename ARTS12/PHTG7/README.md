@@ -29,8 +29,16 @@ I took PHTG7 Exploring Visual Expression in De Anza College during Fall 2024 (Se
   * Set 2: Lovely images. You could have used a faster shutter speed--perhaps 1/250 or 1/500 to really freeze the motion of the water, but you have done a good job on these.
   * Set 3: Great job, Frank! Both images show the Panning effect beautifully. I particularly like how the "Redshopper's" feet are moving faster than her body.
 
-## Assignment 5
+## Assignment 5 Favorite Things, etc.
 
+* Classmate Feedback: 
+  * **Kimia Kooshkbaghi:** Hi Yung, great job on sharing your thoughts and the pictures! I really like how you included a picture of yourself as your favorite person—it’s a wonderful way to show self-love and confidence. I also enjoyed seeing the place. As for the college building, I understand why it disturbs you—it’s really sad that it is being ruined. I also had the same feeling.
+* **Teacher Feedback:**  
+You have done an excellent job, Frank. All of the "Favorites" work well, but I think that the last "Yosemite" image is the most "evocative". Why did you chose to show yourself from that vantage point--from below? Just curious! The "portrait" of Buddy would, I think, be more effective 1) a bit lighter and 2) with shallower depth of field so that the background information does not compete with the subject. I can see why you chose to show the Flint Center as your "Disturbing" image(s). I have not been on campus for a couple of months, and was...startled by its appearance. Both "Inspiring" images are both lovely and, as was the Yosemite image, "evocative".
 
-
-## Assignment 6
+## Assignment 6  "In the Manner of...": Famous Photographer Project: 4 images
+* Classmate Feedback: 
+  * **Arsalan Najm:** Hi Yungfong! Your explanation is clear and well-written, and it’s evident that your images closely reflect Duane Michals' multiple exposure techniques. The technical details, like the long exposure in "Buddy30sec" and the ghosting effect in "SelfDouble," show a strong understanding of Michals' style. Your thoughtful use of reflections and the challenge of adjusting focal lengths also align well with his approach to creating layered, surreal images. Overall, your work captures the essence of Michals' style while demonstrating your own creative interpretation.👏👏👏
+  * **Jazmin Manchester:** Hello Frank,The images you submitted are amazing!! I love your multiple exposure images especially "SelfTriple0.3sec", the way the photo has been took and it being landscape gives a lot of character to your photo! I like how each photo is in black and white too so they're themed the same and none of them are out of place.
+Amazing work!! Thank you for sharing your images!
+* **Teacher Feedback:**  
