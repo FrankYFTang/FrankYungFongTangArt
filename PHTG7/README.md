@@ -137,6 +137,14 @@ I know that, given our present situation, you may not be able to physically acce
 You have done an excellent job, Frank. All of the "Favorites" work well, but I think that the last "Yosemite" image is the most "evocative". Why did you chose to show yourself from that vantage point--from below? Just curious! The "portrait" of Buddy would, I think, be more effective 1) a bit lighter and 2) with shallower depth of field so that the background information does not compete with the subject. I can see why you chose to show the Flint Center as your "Disturbing" image(s). I have not been on campus for a couple of months, and was...startled by its appearance. Both "Inspiring" images are both lovely and, as was the Yosemite image, "evocative".
 
 ## Assignment 6  "In the Manner of...": Famous Photographer Project: 4 images
+### Instruction: 
+
+Famous Photographer Project  
+
+Find a famous photographer whose work you admire. Check out his or her images online and familiarize yourself with the style and technique(s) used by this photographer.
+
+The assignment is to photograph in the same way that they do. Not to reproduce specific images, but to make your own images as if they had been made by that photographer. Try to figure out what they were doing—technically and aesthetically--in their work. Think about why they photograph the way they do and what they might be saying (or trying to say!) with their photographs. Then make the images that they might make.
+
 * Submission [Images](https://photos.app.goo.gl/suH71dPFGNWjTKbh7) [Paper](https://docs.google.com/document/d/1FnatqEzz3OHhX1aRbbqdDCoZ4V3pqjOEcPkyHXIE16Y)
 * * Classmate Feedback: 
   * **Arsalan Najm:** Hi Yungfong! Your explanation is clear and well-written, and it’s evident that your images closely reflect Duane Michals' multiple exposure techniques. The technical details, like the long exposure in "Buddy30sec" and the ghosting effect in "SelfDouble," show a strong understanding of Michals' style. Your thoughtful use of reflections and the challenge of adjusting focal lengths also align well with his approach to creating layered, surreal images. Overall, your work captures the essence of Michals' style while demonstrating your own creative interpretation.👏👏👏
