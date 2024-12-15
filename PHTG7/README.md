@@ -57,6 +57,25 @@ For Submission:
 * **Teacher Feedback:** What an incredibly cute dog...! Great job and great images, Yungfong! You have shown the changes in depth of field very nicely in each of these sets of images.
 
 ## Assignment 3 Written Assignment
+### Instruction: 
+
+Option 1: Visit an art museum or gallery, a list of which follows, and select two images to discuss. These images can be by the same photographer, or by two different photographers.
+
+For each photographer or image, you are to write a relatively short--about 2 paragraphs--statement. This means that the entire statement should be 4 paragraphs: about 1 page.
+
+Who is the artist and what type of work/photography do they do? You may need to do some basic research online to get this information. If you do, do not forget to cite your source(s)!
+
+Describe and discuss each image. Give the title, date and medium, and a description of it in terms of the composition. Discuss each image: why did you chose these particular images? What drew you to them? Perhaps you did not like this piece of work: why did you not? Be specific!
+
+ 
+Option 2: From the list of "Videos" in the Modules, select two photographers and watch one video for each photographer.
+
+As with the above, write a relatively short--about 2 paragraphs--statement for each photographer/video. This means that the entire statement should be 4 paragraphs: about 1 page.
+
+This should include the title of the video you watched, who the artist is and what type of work/photography they do. You may need to do some basic research online to get this information. If you do, do not forget to cite your source(s)! You should then talk about why you chose to discuss this particular photographer. Did his or her appeal to you? Did it not? Why--or why not? Be specific and use examples.
+
+
+
 * [Submission](https://docs.google.com/document/d/15ewUYkJv4vz5YHkP16hDYYcSX2mOZ8A0Wxr0zV_FRjY)
 * **Teacher Feedback:** Though I would like you to have discussed 1 or 2 specific images of Titarenko's, you have done a great job, Yungfong. I am glad that you enjoyed the work of Alexey Titarenko and Arnold Newman. These are very good discussions and I get the feeling that you really looked at and thought about the work of these two fairly different photographers.
 
