@@ -2,7 +2,7 @@
 I took HUMI 7 The Arts and the Human Spirit in De Anza College during Fall 2024 (September 23 - December 9-13, 2024). This repo archived my work for this course. My professor is Barbara Hoffman.
 
 
-## Discussion 1 Introduction
+## Introduction
 
 Hi everyone:
 
@@ -21,4 +21,155 @@ PXL_20231206_040135577~2 (2).jpg
 
 My most recent work is "Binary Black Holes", 2024, Acrylic, 48x60. This is the first time I explore painting bigger canvas. Hope you like it. You can see the progress of making in https://photos.app.goo.gl/ZRXSS6SRtmy2DBVXALinks to an external site.  It took me total two months to paint it.
 
-## 
+## Discussion 1
+**The Pantheon, Rome**
+
+     In Rome, Italy, the Pantheon erects as a grand monument, showcasing the peak of Roman architectural accomplishment and engineering capability. This perfectly symmetrical architecture, a tribute to the aspiration and resourcefulness of the Roman Empire, displays prominent bigness. The dome's height and diameter precisely align at 43.3 meters, with a circular aperture at its apex extending an dignified 9 meters. The Romans painstakingly selected these dimensions, in their units of measurement: 150 Roman feet for the dome's diameter, 30 Roman feet for the oculus, and 40 Roman feet for the doorway. Notably, the Pantheon's dome remains the greatest unreinforced concrete dome worldwide. It was originally built in 27 BCE.
+
+     The rotunda walls and the lower dome levels are characterized by extensive brickwork, while extravagant marble ornaments the interior, encompassing wall veneers, floor paving, and decorative elements. The interaction of various marble colors and patterns produces an endearing visual effect. Structural elements such as columns were crafted from robust granite, promoting the structure’s strength and aesthetic appeal.
+
+     The Pantheon's striking visual impact stems from its harmonious design, colossal dome, grand portico, interplay of light and shadow through the oculus and coffers, rich marbles, granite, and bronze, Corinthian columns, exedrae and niches, modest exterior, and geometric patterns. These visual components combine to make a timeless aesthetic experience.
+
+     Initially built as a grand temple dedicated to all Roman deities, the Pantheon symbolized imperial strength and ministered as a venue for religious rituals. It crystallizes an intricate tapestry of meanings, encompassing cultural and religious significance, human aspiration, architectural innovation, and enduring inheritance.
+
+     The Pantheon halts as a potent notation of cultural continuity, human creativity, and the timeless pursuit of signification and elegance. It incarnates the diverse and inclusive nature of Roman religion, the importance of sacrifice and ritual, the linkage between the divine and imperial realms, and the wish to invigorate wonder and majesty. The Pantheon ministers as a testament to the multifaceted and criss-cross religious faiths held by the Roman people.
+
+* **Feedback:** Good discussion of the architectural features and religious significance.  It's great that you were there!
+
+### Response 1
+Dear Kenneth:
+
+     Your description about Stonehenge is very concise and clear. However, I found that this site does not reveal much about their religious life and beliefs clearly. As you mentioned, there is no direct evidence to illustrate its exact purpose and we only have a lot of educated guesses based on imagination of what it is for. In his book "Stonehenge: A new interpretation of prehistoric man and the cosmos" published in 1996, John North argues that the monument is a prehistoric map of the cosmos, evolving over millennia. It reflects changing beliefs and astronomical knowledge, connecting the earthly and celestial realms for ancient people (North). This challenges traditional interpretations and offers a new perspective on prehistoric culture and astronomy. One additional information I would like to contribute is that there are actually three circles of stones on the ground which are not obvious to to visitors but part of the Stonehenge (Pearson 5) and the alignment of their design to the directions of the solstice and standstills on the horizon, as we can see from the attached image (Person 154). So we should not only consider the area of Stonehenge only as the current obvious part, but include this bigger area.
+
+**Works Cited**
+North, John David. Stonehenge: A new interpretation of prehistoric man and the cosmos. Simon and Schuster, 1996.
+Pearson, Mike Parker, and Michael Parker Pearson. Stonehenge: A brief history. Bloomsbury Publishing, 2023.
+### Response 2
+Dear Hoang
+
+In your article, you have crafted a resounding and compendious overview of the Egyptian Book of the Dead. You predominantly summarize the book's content, purpose, historical context, and its significance as a testament to antique Egyptian beliefs about the afterlife. Additionally, you supply concrete examples of surviving papyri and briefly delve into critical decorum such as the weighing of the heart allusion. Your article serves as an eminent starting point for individuals unfamiliar with this significant subject. One interesting fact is “the spells in this script are written in vertical columns in a distinctive orientation; the text usually runs from the left to the right edge of the roll, and the individual hieroglyphic signs faced away from the direction in which the columns were read contrary to the usual practice“ (Taylor 33). Barry Kemp's book "How to Read the Egyptian Book of the Dead", published in 2012, uniquely focuses on interpreting selected spells to disclose the ancient Egyptians' heaviest fears and hungers in regard to the afterlife. His book offers a personal and insightful comprehension of their worldview, going beyond a mere rendition of the text's content (Kemp).
+
+**Works Cited**
+Kemp, Barry. How to read the Egyptian Book of the Dead. Granta Books, 2012.
+Taylor, John H., ed. Journey through the afterlife: Ancient Egyptian Book of the Dead. Harvard University Press, 2010.
+
+## Discussion 2
+
+**Adoration of the Magi, Sandro Botticelli, c.1478/1482**
+
+     Sandro Botticelli's Adoration of the Magi (c.1478/1482) depicts the biblical story of the Magi visiting the newborn Jesus. Unlike traditional portrayals with three Magi, Botticelli includes a larger group to depict this narrative stated in the Gospel of Matthew. Botticelli's portrayal of the Magi as contemporary Italians in his painting emphasizes Jesus's role as savior for all humanity, regardless of ethnicity. It also underscores Jesus's kingship, even in infancy. Botticelli employs one-point perspective, a popular Renaissance technique for creating realistic depth. The vanishing point, located on Mary's left shoulder, draws the viewer's eye to the central figures. Notably, Botticelli illustrated around forty figures, emphasizing the significance of this biblical event. This painting portrays an elderly Joseph, a haloed Mary tending to baby Jesus, and the Magi's horses and entourage. The ox and donkey symbolize Jesus' humble birth. Fine details highlight the luxurious fabrics. The building's modern architecture features a stone column base and a wooden roof. The artist depicts the Biblical narrative in a contemporary setting, using modern clothing and architectural elements. I viewed this work in the National Gallery of Art in Washington DC in May 2023. I love how the artist renders a large number of figures in this work, all with different facial expressions, body gestures, and clothes. I also love the assertive usage of one point linear perspective in this work. The rendering of the animal, the horses, cow and donkey in this work is also very convincing. The artist skillfully applied overlapping perspectives on both sides of the painting to stack the figures to create a deep space and magnify the authenticity of the event.
+
+Word Count: 272
+
+* **Feedback:** Good critique of the Christian subject matter and the artist's use of perspective.  Glad you were able to see it in person!  There is no need to include bibliography with your replies.
+
+### Response 1
+
+Dear Hoang:
+
+     Thank you for this post. This is surely a beautiful large cathedral: Including the bell towers, it is 87 meters in height and 149 meters in length ("The Reims Cathedral”). The layout plan below shows us there are five radiating chapels from the aisle ambulatory (Feltman). The North Roses Window you mentioned is depicting the first four chapters of Genesis about the Creation story (Lillich). There are 2,300 statues inside this cathedral and it is the only cathedral that has statues with angels that have open wings (“Cathedral of Notre-Dame in Reims.”). One of the most famous statues in this cathedral is the “Smiling Angel”. It suffered great damage:“a burning scaffolding, the angel was decapitated and its head broken into more than 20 pieces” in September 1914 during WWI (Tadié).
+
+Words Count: 132
+**Works Cited**
+“Cathedral of Notre-Dame in Reims.” World Heritage Journeys of Europe, visitworldheritage.com/en/eu/cathedral-of-notre-dame-in-reims/992c73d6-b4f8-44a3-a0e3-7ecde6689b28. Accessed 1 Nov. 2024.
+Feltman, Jennifer. The North Transept of Reims Cathedral. New York and Abindon: Routledge, 2016.
+Lillich, Meredith Parsons. "The Genesis Rose Window of Reims Cathedral." Arte medievale 2 (2003): 2.
+"The Reims Cathedral - History and Visit." PARISCityVISION, www.pariscityvision.com/en/europe/france/champagne/reims-cathedralLinks to an external site.. Accessed 1 Nov. 2024.
+Tadié, Solène. “The Sparkling Story of the World-Famous ‘Smiling Angel.’” NCR, www.ncregister.com/features/the-sparkling-story-of-the-world-famous-smiling-angel. Links to an external site. Accessed 1 Nov. 2024.
+### Response 2
+Dear Viviana:
+
+     Thank you for your sharing of this interesting work. This oil painting is 47 x 59 inches in size and currently located in Prado in Madrid (Gelfand). One key thing I would like to point out is the seven sins are rendered around on the center painting of the Resurrected Jesus, with the Latin words “Cave, Cave, Deus videt!", meaning "Beware, for God sees all!" (Falk 3). This is the key message in this painting: Jesus Christ died for all the sinners and redeemed the world. All who are willing to repent and turn their eyes toward Jesus could pray to Him for His salvation. Therefore, the illustration of this painting is not to condemn the sinners but to call all of us to repent and return to the Almighty, because He is merciful and has paid the price for us already. On the center top of the painting is a banderole with an inscription in Latin, translated as “For they are a nation void of counsel, and there is no understanding in them / If they were wise, they would understand this, they would discern their latter end” (Deuteronomy 32:28‐29). On the center bottom is another banderole: “I will hide my face from them, I will see what their end will be, for they are a perverse generation, children in whom there is no faithfulness” (Deuteronomy 32:20). (Gross 5). The text in these two banderoles calls the viewers to examine their life and repent to their Savior.
+
+Words Count: 249
+**Works Cited**
+Gelfand, Laura D. "Social status and sin: reading Bosch’s Prado seven deadly sins and four last things painting." The Seven Deadly Sins. Brill, 2007. 229-256.
+Gross, Alisa, and Herbert Kessler. "Peter of Limoges and The Seven Deadly Sins and the Four Last Things, by Hieronymus Bosch." (2011).
+Falk, Kurt. The Unknown Hieronymus Bosch. United States, Goldenstone Press, 2008.
+
+### Response 3
+Dear Aaron:
+
+       Milan Cathedral is 158 by 67 meters and its foundation stone was laid in 1386 (Woods et al. 144). This largest Gothic church in Italy was not completed until 1858 (Moffett et al). It was mainly developed in the 15th and 16th century. The main spire was built in 1774. On top of the main spire is a gilded “Madonnina” statue of the Virgin Mary. The facade was finished in 1805 for Napoleon Bonaparte’s coronation (Coronelli et al. 2015). The total height of Milan Cathedral is 108.5 meters. The longitudinal and transverse arches are made of Candoglia marble (Coronelli et al. 2016). The central nave and the side aisles span 18.2 meters and 9.6 meters. The architecture is characterized by a fusion of European Gothic style and Lombardy tradition. Due to the long construction period, we also observe the presence of neo-classic, neo-gothic and even renaissance influences (Gentile et al).
+
+**Works Cited**
+
+Coronelli, Dario, Benedetta Caggioni, and Francesca Zanella. "Cathedral of Milan: Structural history of the load-bearing system." International Journal of Architectural Heritage 9.4 (2015): 510-528.
+Coronelli, D., Giuliana Cardani, and Grigor Angjeliu. "The analysis of the main spire reversed arches of the Cathedral of Milan." 16th International Brick and Block Masonry Conference, Padua, Italy. https://doi. org/10.1201/b21889-145. 2016.
+Gentile, Carmelo, Antonello Ruccolo, and Francesco Canali. "Long-term monitoring for the condition-based structural maintenance of the Milan Cathedral." Construction and Building Materials 228 (2019): 117101.
+Moffett, Marian, Michael W. Fazio, and Lawrence Wodehouse. A world history of architecture. Laurence King Publishing, 2003.
+Woods, Kim, Carol M. Richardson, and Angeliki Lymberopoulou, eds. Making Renaissance Art. Vol. 1. Yale University Press, 2007.
+
+
+## Discussion 3
+Cristo della Minerva (Risen Christ / Christ Carrying the Cross), Michelangelo, 1519–1521
+
+        Michelangelo’s Cristo della Minerva (1519–1521) is a white marble sculpture I encountered in Rome 17 years ago. This life size sculpture renders a resurrected Jesus Christ, holding a Latin cross on his right side. The Latin cross is not scaled and too small for Christ to be hung on, but rather, only served as a symbol to denote Jesus. His left hand is holding a reed and a sponge. These three items are known as part of the Instruments of Passion, also known as Arma Christi. According to the Gospel of Matthew, “they … put a reed in His right hand … and mocked Him, saying, ‘Hail, King of the Jews! … and taking a sponge, he filled it with sour wine… and gave Him a drink” (Matthew 27:29 and 48). Notice in the time of Rome, sponge is a cleaning tool in the public toilet, placed inside a jar of sour wine to sanitize between usage (Brucia and Daugherty 60, Kelly et al. 39, Koloski-Ostrow 87). Therefore, both the reed and sponge symbolize the mocking that Jesus Christ suffered before his death and the humiliation he experienced in order to redeem sinners. Jesus stands in contrapposto with his head turned toward left. His eyes are looking down toward the left, engaging the viewers with gentleness and compassion. Michelangelo elevated the work on top of a 1.5 meters tall platform to exalt the magnificent and authority of Jesus Christ and let the worshippers to adore his work from the worm view. Michelangelo originally sculpted Jesus as a nude figure and “the genitalia are exposed in order to show that his sexuality is uncorrupted by lust and controlled by his will” (Delphi Masters of Art). A bronze loincloth was added in 1546 (Stavrakopoulou 92). The work is displayed in front of a very tall gray marble pillar that nicely serves a nice background of this masterpiece. The details of the muscle and vein are clearly visible on the body of Christ, similar to all other marble sculptures Michelangelo carved. It is an amazing experience for me to see this Italy High Renaissance work in my own eyes inside the church of Santa Maria sopra Minerva. 
+
+Works Cited: 366
+
+**Works Cited**
+Brucia, Margaret A., and Gregory Neil Daugherty. To Be a Roman: Topics in Roman Culture. Bolchazy-Carducci Publishers, 2007.
+Delphi Masters of Art: Complete Works of Michelangelo (Delphi Classics), Delphi Publishing Limited, 2011.
+Kelly, Nigel, Rosemary Rees, and Jane Shuter. The Roman Empire and Medieval Realms. Heinemann, 1997.
+Koloski-Ostrow, Ann Olga. The archaeology of sanitation in Roman Italy: toilets, sewers, and water systems. UNC Press Books, 2015.
+Lavin, Irving. "The Sculptor's' Last Will and Testament'." (1977).
+Stavrakopoulou, Francesca. God: An Anatomy. United States, Knopf Doubleday Publishing Group, 2022.
+* **Feedback:** Wow it's so great that you saw the work in person. Excellent dicussion of the visual elements and how Michelangelo conveys the authority of Christ. 
+
+### Response 1
+Dear Viviana:
+
+      Thank you for introducing The Deposition by Michelangelo to us. It is an interesting sculpture, although it is not a complete work. I would like to clarify one point in your description. Since there are several people named Joseph in the New Testament, the Joseph who could be the possible male figure in this sculpture is not Joseph the husband of Mary, but Joseph of Arimathea (Matt. 27:57-60, Mark 15:43-46, Luke 23:50-53, John 19:38-42). According to the Bible, he was “a rich man from Arimathea”, “a disciple of Jesus, but a secret one for fear of the Jews”, “a prominent member of the Council”, and “ a good and righteous man”. 
+
+     In this work, Michelangelo uses a pyramid composition in this sculpture, denoted by the pointed hat of Joseph (or Nicodemus) directing the viewer toward heaven. I think the artistic expression of Joseph and the upper body of Jesus in this work is great. The positions and relationship between their hands and arms are very interesting and linked four figures together in a creative way. However, there are a lot of problems in the rest of this work: The left arm of Christ is clearly broken in many spots and looks very strange. Also, there are no right legs of Jesus in this sculpture. Finally, the craftsmanship of both the Virgin Mary and Mary Magdalen are very poor because that was done by Tiberio Calcagni, Michelangelo’s assistant, after Michelangelo gave up that work (“The Deposition”). Only part of this work is great, the rest look rather bad, in my eyes.
+
+Works Cited: 263
+
+**Works Cited**
+“The Deposition, by Michelangelo.” Michelangelo, www.michelangelo.org/the-deposition.jsp. Accessed 5 Nov. 2024.
+### Response 2
+Dear Hoang:
+
+     Thank you for introducing this wonderful work of  Caravaggio that demonstrates his heavy usage of chiaroscuro, the technique of using strong contrasts between light and dark. This work surely is a signature piece of tenebrism that shifts from light to dark with little intermediate value. I saw some interesting designs in this work: first, Caravaggio used the minor reflection on the pole, with the leaning body of the two three Roman soldiers to create a pyramid composition to direct the viewer’s vision upward. Second, he presents the posture of Christ in a dramatic theatrical twisted stand that makes Jesus stand out of balance leaning right. This makes the viewers feel the body of Jesus could fall to the ground at any moment, only holded by the Roman soldier grabbing his hair. The two soldiers on the left both hold a bundle of sticks to whip him. Notice the soldier on the lower left is actually trying to bundle the stick with his both hands in this painting. The other interesting thing is Jesus is depicted wearing both his crown of thorns and a hairline halo on his head. The halo is very thin that the viewer could easily miss but it is there. Caravaggio skillfully illustrated the muscle of all characters to render the tension in the work. The facial expression of Jesus displays his meekness and amenability, not to the Roman soldiers, but to the will of His heavenly father. The facial expression of the soldier on the left shows the contrast. One artistic expression I disagree with Caravaggio is how he rendered the skin of Jesus in this painting. In the Biblical narrative, Jesus’s body should be heavily beaten and badly wounded at this point, but Caravaggio represents his body in an ideal shape, without all the horrible marks the sinners left on Him.
+
+Word Count: 306
+## Discussion 4
+Mihrab (Prayer Niche), Iran, Isfahan
+
+I encountered this beautiful Islamic artwork in May 2023 while I visited The Metropolitan Museum of Art, New York City. This Mihrab, prayer niche, was originally part of Madrasah-i Imami, a theological college in Isfahan (“Madrasah-I Imami Isfahan, Iran”). It was built in the fourteen centuries, Wilson 60-63). It is 135 inches tall, 114 inches wide, 4,500 lbs in weight and made of mosaic of polychrome-glazed cut tiles on stonepaste body, set into mortar (“Mihrab (Prayer Niche)”). It is one of the most valuable Islamic art objects in the Met's collection of 15,000 Islamic art objects (“Islamic Art”). The tiles are in white, sky blue, Turkish blue, lazur blue, indigo, eggplant, kohl, and black color (Kirchner). Like all other Mihrab, it was built into the qibla wall and pointing towards Mecca. It serves the purpose of guiding the worshiper to pray toward the correct direction during their five times a day prayer. The Mihrab is curved, serving as an Acoustic device to reflect the voice of the prayer leader more efficiently to his fellow workshiper (Syamsiyah). This work consists of three Arabic inscriptions: On the framing band, the white text over indigo background is written in muhaqqaq script, defined by Ibn Muqla during the tenth century (Wilson 62). The right to left Arabic text are verses from Qur’an 9:18-22 which flows from the bottom right to the bottom left. On the white inner border, the indigo text renders the Five Pillars of Islam in Kufic script (Macaulay and Zucker). It reminds the believers to faithfully follow. Inside the rectangle panel in the lower center, the Arabic inscription is “The Prophet said: ‘The mosque is the abode of every believer”. There is no object placed inside the niche for the worshipers to pray to. It is always empty. It only served as a direction pointer. The work is highly decorated with an abstract pattern. I really appreciate the color, the pattern and the calligraphy of this work. The quality of the blue tiles and the fine cut to form the small shape in the work is incredible. The pattern is abstract but yet naturally inspired. The calligraphy is beautiful and very artistically formed, especially the text in Kufic script. 
+
+Word Count: 371
+
+**Works Cited**
+“Islamic Art.” The Metropolitan Museum of Art, 2 Apr. 2024, www.metmuseum.org/about-the-met/collection-areas/islamic-art. 
+Kirchner, Eric. "Color theory and color order in medieval Islam: a review." Color Research & Application 40.1 (2015): 5-16.
+Macaulay, Elizabeth, and Steven Zucker. “Mihrab from Isfahan (Iran).” Smarthistory, smarthistory.org/mihrab-from-isfahan-iran/. Accessed 18 Nov. 2024. 
+“Madrasah-I Imami Isfahan, Iran.” Archnet, www.archnet.org/sites/3886. Accessed 18 Nov. 2024. 
+“Mihrab (Prayer Niche).” The Metropolitan Museum of Art, www.metmuseum.org/art/collection/search/449537. Links to an external site. Accessed 18 Nov. 2024. 
+Syamsiyah, Nur Rahmawati. "Acoustic phenomena in the MIHRAB of mosques." Conference: International Seminar on Recent Development in the Integration of Islam and Knowledge. 2011.
+Wilson, Matthew. Art Unpacked: 50 Works of Art: Uncovered, Explored, Explained, with Over 850 Images. Thames & Hudson Limited, 2023.
+* **Feedback:** Good critique of the symbolism and religious function and how it fosters spiritual connection.  It is so great that you have seen it in person!  I would love to and can only imagine how beautiful it is in person.  This quarter, I've really enjoyed reading your first hand account of the monuments. Excellent work!
+
+### Response 1
+
+Dear Viviana
+
+Thank you for sharing this wonderful Japanese print. Unfortunately, the image you attached is not complete. I found an image of the full print from the National Museum of Asian Art and attached it here (“Nirvana of the Buddha”). The top portion of this print includes the rendering of the moon on the upper right corner and an important female figure, accompanied by six servants, sobbing on top of the cloud above the trees. She is probably Maya, mother of the Buddha. This painting is currently part of the collection of Freer Gallery of Art Collection in DC, USA. It was previously at the altar of the temple Enmeiji in Mie Prefecture. One interesting feature of this work is it employed Hierarchical Perspective to render the Buddha in a much larger size, compared to other supporting characters. Another interesting artistic feature is the fact that the artist renders some of the characters from their back, which is seldom observed in western paintings. The painting is full of postures, gestures, and emotional expression in many different styles. It creates a very dynamic interaction between figures.
+
+Words Count: 184
+
+**Works Cited**
+
+“Nirvana of the Buddha.” National Museum of Asian Art, asia.si.edu/explore-art-culture/collections/search/edanmdm:fsg_F1970.30/. Accessed 30 Nov. 2024.
+### Response 2
+Dear Hoang
+
+        Thank you for sharing this discussion topic of The Dome of the Rock. Its octagonal layout is truly amazing (Fig 1, Creswell 10). Grabar mentioned that it is constructed by two imbricated sections: a 25 meters tall cylinder in 20 meters diameter and a 48 meters diameter octagonal ring (Fig 2, Grabar 1-3). The golden dome symbolizes the vault of heaven which connects the earthly realm with the divine to reflect the concept of seven heavens. The octagonal shape and intricate mosaics represent the celestial spheres and the cosmos's order. It echoes the Quranic descriptions of a structured and divinely adorned universe. One thing interesting is the mosque where all the Muslim pray is actually not inside The Dome of the Rock, but rather, “The Mosque is situated in the southern portion of the plateau, and the doom is built on the raised rock that is situated in the middle of the plateau” (Abdul-Rahman 12). I really love the color scheme of gold, blue and white in three horizontal layers. The heavy usage of columns and round arches remind of Greek columns and Roman architecture. Many of the columns are in the Corinthian order which has ornate and leafy capitals. It is an amazing building!
+
+
+**Works Cited**
+Abdul-Rahman, Muhammad Saed. Islam: Questions and Answers: Islamic History and Biography. Vol. 14.   MSA Publication Limited, 2003.
+Creswell, Keppel Archibald Cameron. The Origin of the Plan of the Dome of the Rock. Vol. 2. Council, 1924.
+Grabar, Oleg. The DOME of the Rock. Harvard University Press, 2006.
+
