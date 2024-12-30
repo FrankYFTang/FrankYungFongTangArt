@@ -1,6 +1,6 @@
 # ARTS 3TC	Women and Art
 I took ARTS 3TC Women and Art in De Anza College during Fall 2022 (Sep 26 - Dec 16, 2022). This repo archived my work for this course.
-My professor is Natasha Kleit.
+My professor was Natasha Kleit.
 
 * **Journal 1**- [A Letter To Anita Lily Pollitzer From Georgia O’Keeffe, October 25, 2022, Frank Yung-fong Tang](https://drive.google.com/file/d/1XeZqhUDDUSgmiJOg_4FftAJ3f8XL0IBv/view?usp=sharing) 
   * **Artwork**: Georgia O’Keeffe, Radiator Building—Night, New York, Oil on canva, 1927
