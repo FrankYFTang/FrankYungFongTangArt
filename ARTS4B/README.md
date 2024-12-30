@@ -1,6 +1,6 @@
 # ARTS 4B Intermediate Drawing
 
-I took ARTS 4B Intermediate Drawing in De Anza College during Fall 2023 (September 25 - December 15, 2023). This repo archived my work for this course. My professor is Meiru Huang.
+I took ARTS 4B Intermediate Drawing in De Anza College during Fall 2023 (September 25 - December 15, 2023). This repo archived my work for this course. My professor was Meiru Huang.
 * **Exercise 1-Cross Contour (2pts)**
   * **Materials:** charcoal pencil/pen on any white paper. Create a contour drawing and add cross contour of your hand posing or holding an object
 * **Exercise 2-Value Charts with ink pen & brush**
