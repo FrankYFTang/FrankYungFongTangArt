@@ -1,6 +1,6 @@
 # HUMI 16 Arts, Ideas & Values
 
-I took HUMI 16 Arts, Ideas & Values in De Anza College during Winter 2024 (Janurary 8 - March 29, 2024). This repo archived my work for this course. My professor is Leslie Berry.
+I took HUMI 16 Arts, Ideas & Values in De Anza College during Winter 2024 (Janurary 8 - March 29, 2024). This repo archived my work for this course. My professor was Leslie Berry.
 
 * **Week 1** [Introduction](week1.md)
 * **Week 2** [Journal - Introductions & Definitions](week2a.md) / [Explore Song Lyrics](week2b.md)
