@@ -1,5 +1,5 @@
 # PHTG7 Exploring Visual Expression
-I took PHTG7 Exploring Visual Expression in De Anza College during Fall 2024 (September 23 - December 9-13, 2024). This repo archived my work for this course. My professor is Sita Bhattacharji.
+I took PHTG7 Exploring Visual Expression in De Anza College during Fall 2024 (September 23 - December 9-13, 2024). This repo archived my work for this course. My professor was Sita Bhattacharji.
 
 ## Assignment 1 Color, Pattern, Curve and Shadow
 
