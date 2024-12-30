@@ -1,5 +1,5 @@
 # ARTS 4A Beginning Drawing
-I took ARTS 4A Beginning Drawing in De Anza College during Spring 2023 (April 10 - June 01, 2023). This repo archived my work for this course. My professor is Kenney Mencher.
+I took ARTS 4A Beginning Drawing in De Anza College during Spring 2023 (April 10 - June 01, 2023). This repo archived my work for this course. My professor was Kenney Mencher.
 * [Week 1 Assigment- Old Master Copies Using the Envelope Method](week1.md) Score: A (10) {Mean: 8.22 Median: 8.9 10/9.3/8.6/0}
 * [Week 2 Assigment- Old Master Copy Using a Grid](week2.md) Score: A (10) {Mean: 8.13 Median: 8.9 10/10/7.9/0}
 * [Week 3 Assigment- Drawings of the Basic Shapes](week3.md) Score: A- (9.3) {Mean: 8.57 Median: 8.6 10/9.3/7.9/6}
