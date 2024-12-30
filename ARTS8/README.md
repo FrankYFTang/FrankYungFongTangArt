@@ -1,5 +1,5 @@
 # ARTS 8 Two-Dimensional Design
-I am taking ARTS 8 Two-Dimensional Design in De Anza College during Winter 2023 (Jan 9 - March 31, 2023). This repo archived my work for this course. My professor is Eugene Rodriguez.
+I am taking ARTS 8 Two-Dimensional Design in De Anza College during Winter 2023 (Jan 9 - March 31, 2023). This repo archived my work for this course. My professor was Eugene Rodriguez.
 
 ## Self Introduction Video
 ### Instruction from the professor:
