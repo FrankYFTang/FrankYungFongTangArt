@@ -1,5 +1,5 @@
 # HUMI 7 The Arts and the Human Spirit
-I took HUMI 7 The Arts and the Human Spirit in De Anza College during Fall 2024 (September 23 - December 9-13, 2024). This repo archived my work for this course. My professor is Barbara Hoffman.
+I took HUMI 7 The Arts and the Human Spirit in De Anza College during Fall 2024 (September 23 - December 9-13, 2024). This repo archived my work for this course. My professor was Barbara Hoffman.
 
 ## Introduction
 Hi everyone:
