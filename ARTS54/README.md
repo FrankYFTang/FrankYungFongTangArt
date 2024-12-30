@@ -1,5 +1,5 @@
 # ARTS 54 Introduction to Graphic Design: Digital Imaging 
-I took Introduction to Graphic Design: Digital Imaging in De Anza College during Spring 2024 (April 6 - June 28, 2024). This repo archived my work for this course. My professor is Gokce Kasikci (aka Blue).
+I took Introduction to Graphic Design: Digital Imaging in De Anza College during Spring 2024 (April 6 - June 28, 2024). This repo archived my work for this course. My professor was Gokce Kasikci (aka Blue).
 
 ## Week 1 Assignment
 puzzle-student.psd exercise
