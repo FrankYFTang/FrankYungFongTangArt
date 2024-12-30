@@ -3,7 +3,8 @@ I took EWRT 2 Critical Reading, Writing and Thinking in De Anza College during S
 My professor was Margaret Hanzimanolis.
 
 ## Essays
-
+### Discussion 1: Introduce Yourself (Grade: 12/10)
+* Feedback from Professor: Wow, such an interesting story of your life. The Bible is indeed knowledge in "story form"--so that is a great example of how narratives themselves are important in how we present and defend ideas.
 ### Formal Paper 1 Narrative (Grade: 93/100)
 * Feedback from Professor:
   * Great narrative, Youngfong! I especially like the vivid details in the cooking paragraph. I don't think the link is working and your place /people descriptions could be strengthened a bit, but otherwise this is great. Are you taking the watercolor class at de anza? I cannot find one open during summer term.
