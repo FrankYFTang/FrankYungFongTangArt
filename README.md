@@ -45,6 +45,9 @@ Below are links to some arts I made since 2018
 * [ARTS 12 Design and Color](ARTS12) (Winter 2024)
 * ARTS 53 Introduction to Graphic Design: Vector Illustration
 * ARTS 54 Introduction to Graphic Design: Digital Imaging
+* [PHTG 4 Introduction to Digital Photography](PHTG4) (Spring 2024)
+* [PHTG 7 Exploring Visual Expression](PHTG7) (Fall 2024)
+
 ## Papers Submission for Other Courses took in De Anza College
 * [ECON 1 Principles of Macroeconomics](ECON1) (Spring 2013)
 * [ECON 2 Principles of Microeconomics](ECON2) (Fall 2013)
