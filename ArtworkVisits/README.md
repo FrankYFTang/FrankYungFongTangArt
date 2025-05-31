@@ -86,3 +86,10 @@ This page lists links pointing to Museum and Art Galleries I visited:
 * [Taipei Old Buildings](https://photos.app.goo.gl/ki2SCFhpqsD34T5V7), Taipei, Taiwan, ROC
 ## South Korea
 * [Changdeokgung Palace](https://photos.app.goo.gl/utqQLn5C8ZT8ou4F8), Seoul, South Korea
+## Turkey
+* [The whole Turkey trip 2025](https://photos.app.goo.gl/QDyo1ydr1wjYrH8G9)
+* [Islamic Turkey](https://photos.app.goo.gl/dLyMQ895whCjRx6t6)
+* [Hagia Sophia, Istanbul](https://photos.app.goo.gl/PTBphv2yqyfGtDce9), Turkey
+* [Hippodrome, Istanbul](https://photos.app.goo.gl/TuqRug4N2rRqe9KE8), Turkey
+* [Blue Mosque, Istanbul](https://photos.app.goo.gl/GnZbgvqnA4Kc3bx86), Turkey
+
