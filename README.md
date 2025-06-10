@@ -63,7 +63,8 @@ Below are links to some arts I made since 2018
 * [EWRT 1A Composition and Reading](EWRT1A) (Fall 2023)
 * EWRT 2 Critical Reading, Writing and Thinking (Summer 2024)
 * [HUMI 16 Arts, Ideas & Values](HUMI16) (Winter 2024)
-* HUMI 7 Arts, Ideas & Values](HUMI16) (Winter 2024)
+* HUMI 7 Arts, Ideas & Values (Fall 2024)
+* HUMI 15 Discussion on the Arts (Fall 2024)
 
 
 ## Poems
