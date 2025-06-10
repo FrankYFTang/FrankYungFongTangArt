@@ -43,16 +43,27 @@ Below are links to some arts I made since 2018
 * [ARTS 2J History of Art: Arts of Africa, Oceania and Native North America](ARTS2J) (Fall 2023)
 * [ARTS 4B Intermediate Drawing](ARTS4B) (Fall 2023)
 * [ARTS 12 Design and Color](ARTS12) (Winter 2024)
-* ARTS 53 Introduction to Graphic Design: Vector Illustration
-* ARTS 54 Introduction to Graphic Design: Digital Imaging
+* [ARTS 54 Introduction to Graphic Design: Digital Imaging](ARTS54) (Spring 2024)
 * [PHTG 4 Introduction to Digital Photography](PHTG4) (Spring 2024)
 * [PHTG 7 Exploring Visual Expression](PHTG7) (Fall 2024)
+* [ARTS 15 Discussion on the Arts](ARTS12) (Fall 2024)
+* [ARTS 3TE Today's Art Scene](ARTS3TE) (Spring 2025)
+
+## Art Papers and Art Work Submission for Courses took in Foothill College
+* [ART 47A Watercolor I](ART47A)(Summer 2024)
+* [ART 19A Oil Painting I](ART19A)(Fall 2024)
+* [ART 4C Representational Drawing](ART4C)(Winter 2025)
+* [ART 20 Color Theory](ART20)(Winter 2025)
+* [ART 47B Watercolor II](ART47B)(Spring 2025)
+* [ART 2G Introduction to Islamic Art](ART2G)(Spring 2025)
 
 ## Papers Submission for Other Courses took in De Anza College
 * [ECON 1 Principles of Macroeconomics](ECON1) (Spring 2013)
 * [ECON 2 Principles of Microeconomics](ECON2) (Fall 2013)
 * [EWRT 1A Composition and Reading](EWRT1A) (Fall 2023)
+* EWRT 2 Critical Reading, Writing and Thinking (Summer 2024)
 * [HUMI 16 Arts, Ideas & Values](HUMI16) (Winter 2024)
+* HUMI 7 Arts, Ideas & Values](HUMI16) (Winter 2024)
 
 
 ## Poems
