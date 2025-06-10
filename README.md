@@ -55,7 +55,7 @@ Below are links to some arts I made since 2018
 * [ART 4C Representational Drawing](ART4C)(Winter 2025)
 * [ART 20 Color Theory](ART20)(Winter 2025)
 * [ART 47B Watercolor II](ART47B)(Spring 2025)
-* [ART 2G Introduction to Islamic Art](ART2G)(Spring 2025)
+* ART 2G Introduction to Islamic Art (Spring 2025)
 
 ## Papers Submission for Other Courses took in De Anza College
 * [ECON 1 Principles of Macroeconomics](ECON1) (Spring 2013)
