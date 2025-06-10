@@ -2,6 +2,7 @@
 * Date: May 13 - June 5, 2025
 * Location: Euphrat Museum of Art, De Anza College, 21250 Stevens Creek Blvd, Cupertino, CA 95014
 * [All the paintings in the show](https://photos.app.goo.gl/Bvi1XyZk61cpdBxY9)
+* News Coverage - [La Voz June 3, 2025 Issue](https://issuu.com/lavozweekly/docs/vol._62_issue_2_june_3_2025) page 4 
  
 ## Binary Black Holes (2024)
 * Size: 48x60 
