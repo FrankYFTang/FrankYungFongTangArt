@@ -345,16 +345,14 @@ Frank
 
 ## Extra Credit
 * **score** 20 / 0
-### Prompt
-### Submission
-
+### [Submission](https://docs.google.com/document/d/1T8lAcSX_vFQ9vnz_Uu_OvgRfJLZGbgJq7LDvDQGfjcE/edit?usp=sharing)
 ### Feedback
-### Comments to classmates
+Good summary. 
+
 
 ## Final Exam PART 2 Essay Question
 * **score** 50 / 50
-### Prompt
-### Submission
-
 ### Feedback
-### Comments to classmates
+Excellent. The response is beautifully written with a wonderful engagement with the formal elements of the artworks, and you do a good job of identifying symbols and structures we studied this term.  Wonderful to see you include cited references to the posted articles.
+
+One of the strongest responses in the class. Well done.
