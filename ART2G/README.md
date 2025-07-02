@@ -270,10 +270,27 @@ Frank
 ## Week 6 Write About It
 * **score** 10 / 10
 ### Prompt
+For this weeks topic please discuss how the Friday Mosque of Sultan Hasan in Cairo served the community. Please offer at least 3 examples and post a peer response. 
+
 ### Submission
+The Friday Mosque of Sultan Hasan in Cairo served the community by providing 1) a place to pray, as a mosque, 2) a school, as known as madrasa, 3) spaces for physicians to service the community, 4) public water fountain dispensary, known as sabil-kuttab, and 5) a primary school for boys, known as kuttab.
+
+The main community function of the Friday Mosque of Sultan Hasan in Cairo is surely for prayer. Muslim male gather every Friday to pray in this building. For other times, these spaces are reserved for madrasa seminar meeting spaces. Beside the mosque and mausoleum, most of the rest of this structure is designed for the madrasa and other support functions. This madrasa has four separate schools of Sunni Islamic law. At the maximum capacity, there are 500 students studying at the madrasa. This makes it one of the largest madrasa in Cairo. The fountain in the center of the courtyard provides water for all citizens to use. It also hosts a kuttab, primary school for boys, which has the capacity of 200. 
+
+The Friday Mosque of Sultan Hasan in Cairo serves the community by providing space for prayer, study of the Muslim religion, water, medical assistant, and elementary education for boys in Cairo.
 
 ### Feedback
+Excellent
 ### Comments to classmates
+#### Dear Sidra:
+
+Thanks for your posting. You summarize that community function of this Friday Mosque of Sultan Hasan very clearly. However, I wonder why should we consider a resting place of Sultan Hasan a function that served the community. It is a pretty personal function, right? What would the community gain anything from that?
+
+ 
+
+Regards,
+
+Frank
 
 ## Week 7 Write About it
 * **score** 10 / 10
