@@ -278,11 +278,33 @@ Frank
 ## Week 7 Write About it
 * **score** 10 / 10
 ### Prompt
+For this weeks discussion, please discuss one example of architecture (from this weeks content) that contained architectural and visual elements from multiple cultures (you may include spolia from previous cultures). Please also post a peer comment. 
+
+
 ### Submission
+The Great Mosque of Kairouan Shows Infleuence of Visual Characters from Multiple Cultures
+
+Many architectures in the Islamic West showing the infleuence of visual characters from multiple cultures, one great example is The Great Mosque of Kairouan in Tunisia. 
+
+Kairouan was founded in 670 and rapidly developed under the Aghlabid dynasty in the 9th century. The Great Mosque of Kairouan therefore is the oldest Muslim place of worship in North Africa. Muslin considered it as the fourth holiest site after Mecca, Medina, and Jerusalem. 
+
+The Great Mosque, similar to other hypostyle mosques, such as the Prophet’s Mosque in Medina, is roughly rectangular. The southern end of the Great Mosque is a hypostyle prayer room. It was built with 17 naves supported by 414 columns of marble, granite or porphyry. They were taken from several ancient sites, including Hadrumetum, Chemtou, Sbeïtla andCarthage. These forest of columns were reuse to support the horseshoe arches. Many of these capitals of these repurposed Roman and Byzantine columns are in Corinthian order. These columns were also used to build the vast flagstone open courtyard on the north. These columns demonstrates Hellenistic influence and the arched on top shown Roman asetheic. The courtyard entrance to the prayer space was adorned by another Aghlabid ruler in the late ninth century. He built a dome over the central arches and portal. The dome directes the attention to the placement of the mihrab. It also shows the architectural element from Roman and Byzantine architecture. The dome was built with twenty four ribs, and has several small windows open on the drum to allow some natural light to illuminate the dim interior. Shell over rosette designs similar to examples in Roman, Byzantine, and Umayyad Islamic art decorates squinches and small arches that support the stone dome. 
+
+Floral and geometric vine designs are shown on the openwork marble panels decorating the lower portion of the mihrab. These panels, featured stylized floral patterns like Byzantine and eastern Islamic examples, were from the Syrian area.  Lustre tiles from Iraq excessively decortes around the mihrab. 
+
+The minbar is made from expensive teak imported from Asia. Meticulously carved latticework with floral, vegetal, and geometric designs similar to those found in Byzantine and Umayyad architecture decorates the side of the minbar closest to the mihrab. There is also a wooden maqsura reserved for the ruler and high officials. The maqsura is built from cutwork wooden screens. These wooden screens has abstracted vegetal motifs. Geometric frames, kufic-style script inscriptions, and merlons are used their design. 
+
+The minaret on the north is in a very different style than those thin, round, and tall minarets founded in Arabia or Anatolia. The massive square Kairouan minaret is about thirty two meters tall. It shape like a Roman lighthouses and is one of the highest building around to identifies the mosque’s presence and location. It also helps to define the city’s religious identity. 
+
+From various elements in The Great Mosque of Kairouan, we see the pre-Islamic Greek, Roman and Byzantine influence. Materials imported from Asia, Syrian, Iraq were used to composit this archicture masterpiece. We also observe many design element, in small area or large plan, illustrating Byzantine and Umayyad influences. It is surely a great example of architecture demonstrates visual characters from multiple cultures.
+
 
 ### Feedback
+Excellent. A thorough response that demonstrates and attentive engagement with the content from the course and strong critical thinking skills. 
 ### Comments to classmates
+#### Dear Alexis 
 
+Thanks for your sharing. I agree with you that this is a great example of integration of visual and structural elements from various sources. I think their reuse of columns and capital are brilliant. I am in Turkey this week and see many columns laying on the ruins and totally understand why they will reuse them. 
 ## Research Activity 2 What are your Sources
 * **score** 20 / 20
 ### Prompt
