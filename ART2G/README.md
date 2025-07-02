@@ -300,11 +300,10 @@ Frank
 
 ## Midterm Exam Part 2 Essay Question
 * **score** 30 / 30
-### Prompt
-### Submission
-
 ### Feedback
+Excellent response that demonstrates strong critical thinking skills in your ability to synthesize content representing these historical contexts. The analysis includes an attentive understanding of the visual forms and their respective political and social motivations.  Wonderful to see you include a cited reference to the assigned textbook reading to support your argument. 
 
+This is one of the strongest responses in the class. Well done. 
 ## Research Activity 3 What is your guiding question and thesis statement?
 * **score** 20 / 20
 ### Prompt
