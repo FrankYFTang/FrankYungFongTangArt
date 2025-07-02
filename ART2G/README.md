@@ -287,8 +287,19 @@ Frank
 * **score** 20 / 20
 ### Prompt
 ### Submission
+What information in the seminar library modules was most useful and why?
+The information about how to set Foothill College library into Google scholar preference is most useful to me. This empowers me to view some articles that I won’t be able to view before.
+Please list 3 peer reviewed academic sources
+Sources
+Abdullahi, Yahya, and Mohamed Rashid Bin Embi. "Evolution of Islamic geometric patterns." Frontiers of Architectural Research 2.2 (2013): 243-251.
+Bier, Carol. "Geometry in Islamic art." Encyclopaedia of the History of Science, Technology, and Medicine in Non-Western Cultures (2015): 1-21.
+Broug, Eric. Islamic geometric design. Vol. 1. London: Thames & Hudson, 2013.
+Kaplan, Craig S. "Islamic star patterns from polygons in contact." Proceedings of Graphics Interface 2005. 2005.
+Kaplan, Craig S. and David H. Salesin. "Islamic star patterns in absolute geometry." ACM Transactions on Graphics (TOG) 23.2 (2004): 97-119.
+Lee, Anthony J. "Islamic star patterns." Muqarnas (1987): 182-197.
 
 ### Feedback
+Strong sources and correct citation format.
 
 ## Week 8 Write About It
 * **score** 10 / 10
