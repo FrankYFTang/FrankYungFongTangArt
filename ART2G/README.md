@@ -254,10 +254,13 @@ Frank
 
 ## Research Activity 1 What is Your Topic?
 * **score** 20 / 20
-### Prompt
-### Submission
 
+### Submission
+I would like to center my research paper on the topic of "Geometry in Islamic Aesthetics in Art and/or Architecture".
+
+I have already collect many images about related artworks while I visited The Metropolitan Museum of Art, New York City and National Museum of Asian Art / Freer Gallery of Art in DC last two years (see  https://photos.app.goo.gl/aEuVif5JqJ3efiQw6Links to an external site. ). In the mid of May, I am also going to Istanbul Türkiye to visit Blue Mosque and other Islamic buildings to collect images and understand the context in first hand experience. I probably will focus more on the geometry of wood screens and tiles. 
 ### Feedback
+Great topic choice. I encourage you to engage with peer reviewed academic articles for your paper. The MET is an excellent open source that I also rely on. Please understand that the essays from the MET are similar to the broad introductory survey level and are not equivalent to academic articles. 
 
 ## Week 5 Write About It
 * **score** 10 / 10
