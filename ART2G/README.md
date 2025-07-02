@@ -262,11 +262,33 @@ Frank
 ## Week 5 Write About It
 * **score** 10 / 10
 ### Prompt
+For this week discussion please offer three examples of architecture discussed in the assigned textbook reading (Chapter 5: "The Age of the Atabegs: Syria, Iraq and Anatolia, 1100-1300"). Please define the purpose of the  architecture and describe distinguishing characteristics of its form. Please also include a response to at least one peer. 
+
+
 ### Submission
+  We observe many different artistic forms from madrasa, mausolea, caravanserais, and mosques built in the age of atabegs during the twentieth and thirteenth century. The diversity of these architectural forms greatly enriched the Islamic art. 
 
+        Madrasa is the building for any type of educational institution, secular or religious, ranging from elementary education to higher learning. Usually the patron built their own tombs attached to it. In the twelfth and thirteenth century, the amirs followed this standard practice and quickly spread the institution of learning across the Near East, especially found in Saljuq Anatolia. There are different forms of madrasa architectures, such as domed madrasa, two-iwan madrasa, and four-iwan madrasa. Çifte Minare Medrese in Erzurum, for example, follows a four-iwan plan with twin minarets (Hillenbrand 124). It is the biggest madrasa built in Anatolia in the medieval period. 
+
+        Mausolea is the monumental funerary structure installed to house and commemorate the tombs of deceased patrons. Different regions prefer different artistic styles of Mausolea. Most of the mausolea in Syria are domed squares. In Syria, domed squares are common. The form of the structure is simple and all important information about the deceased are posted on a panel over the door. Mausolea in Egypt are usually larger with multiple tiers of squinches. In northern Iraq, mausolea was built as a pyramidal roof on top of squat square tombs, decorated by glazed brick on the facades. Muqarnas dome mausoleums were popular in Anatolia and southern Iraq. One great example is the tombs of Sitt Zubaida and ‘Umar al-Suhrawardi, Baghdad (126). It was built by an Iranian geometric brick lower base, supporting an ancient Mesopotamian associated conical muqarnas dome on top. The Armenian church influences, such as animal sculpture, blind arcading, multiple mouldings, and medallions, could be observed from mausoleums in Anatolia. We found more Syrian style mausolea in the west and south Anatolia, but more  Iranian type brick  on the east Anatolia.
+
+        Caravansarais, as known as khans, are lodging places for merchants, travellers, and their goods. They are usually fortified and built on a trade route to provide resting places during the transportation. Caravansarai at Tercan, eastern Anatolia is one of such architecture (128). It has strong, fortress-like high exterior stone walls, strengthened by semi-circular buttresses. Its entrance is a giant arched portal. These Caravansarais are very important in the global trading during that period, providing safety for the traders of global economy. 
+
+        In the Saljuqs of Rum, we also observe the significance of religious architecture in their mosques. The building style absorbs the features from ancient Arabian hypostyle, the Iranian four-iwan mosque, and Damascus mosques, and incorporates them into their giant domed space. Congressional mosque of ‘Ala al-din in Konya showcases such features (127). These styles predated and significantly influenced later Ottoman religious architecture.
+
+Works Cited
+
+Hillenbrand, Robert. Islamic art and architecture. Thames & Hudson, 2024.
 ### Feedback
+Excellent examples and context. Wonderful to see the discussion address patrons and the Caravansarais.  
 ### Comments to classmates
+#### Dear Aparna:
 
+Thanks for your summary. I really hope one day I can visit these great places at the eastern part of Anatolia. I am visiting Turkey this Saturday but I will only stay on the west side of Anatolia. I hope I could see some of the madrasa buildings in person the next two weeks. The use of bricks on geometric arrangements at lower portion of Sitt Zubaida is an interesting feature to study more. 
+
+Regards,
+
+Frank
 ## Week 6 Write About It
 * **score** 10 / 10
 ### Prompt
