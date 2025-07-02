@@ -293,11 +293,34 @@ Frank
 ## Week 8 Write About It
 * **score** 10 / 10
 ### Prompt
+For this weeks discussion I would like you to answer this question. What is an example of how Mongol rulers used art or architecture in an attempt to assert the legitimacy of their authority?  Please offer an example from this weeks module content or the assigned reading. Please also post a peer response. 
 ### Submission
+During the 13th and 14th centuries, the Mongol Ilkhanid rulers bridled Persian. They actively applied art as a tool to ascertain the legitimacy of their foreign power. A key example of their strategy is the commission and production of the Great Mongol Shahnama (Book of Kings). Dating from between 1330 and 1340, this affluent illustrated manuscript illustrates the rich narrative tradition of the Persian epic poem, the Shahnama. Shahnama was compiled centuries earlier in pre-Islamic Persian. The Mongol monarchs integrated themselves into the historical and cultural society of the region by visually cherishing and patronizing this Persian cultural identity.
+
+         There are “about 280 folios (pages) with 190 illustrations painted by several different artists” in this work (Yantz). The folio depicting "Bahram Gur Fights the Karg" shows such legitimizing effort. This folio portrays the heroic Sasanian king Bahram Gur winning a victory over an uncouth beast that terrorized the land. Sasanian king Bahram Gur is a figure traditionally celebrated in Persian lore for his bravery and just rule. For the Mongol patrons, this illustration surpassed a mere rendering of a popular tale. It served as an overbearing allegory where Bahram Gur symbolized conscientious leadership and the establishment of order over the Karg, representing chaos. The Mongol rulers implicitly positioned themselves as rulers of justice and powerful protectors of the realm by linking themselves with the ancient Persian king. 
+
+        Other folios in that book show similar effects. I traveled to Washington DC two and half years ago and saw four other folios from that book in the National Museum of Asian Art / Freer Gallery of Art. All of them show similar characteris: 1) Rustam slays Ashkbus and his horse, 2) Afrasiyab takes Siyavush in battle, 3) Garsivaz prostrating himself before Siyavush, 4) Rustam slays the white elephant with a single blow. All these folios help the Mongol patrons to build a new identities which link their ruling into the pre-Islamic Persian culture. 
+
+        The artistic style of the Great Mongol Shahnama also facilitated this process of legitimation. While incorporating influences from East Asia, the illustrations also drew upon established Persian artistic traditions of depicting heroic figures on horseback, engaged in acts of valor. The portrayal of Bahram Gur as a powerful horseman, a skill highly and commonly valued by both Persians and the nomadic Mongols bridged their cultural gap. The Mongol rulers strategically employed these illustrations to cultivate an image of continuity and legitimate authority in the eyes of their Persian subjects. They presented themselves within a familiar visual language and aligned with revered historical figures. They effectively weave their narrative into the pre-existing tapestry of Persian history and legend.
+
+Works Cited
+
+Jayne Yantz, "Bahram Gur Fights the Karg (Horned Wolf)," in Smarthistory, January 20, 2017, accessed May 26,
+        2025, https://smarthistory.org/bahram-gur-fights-the-karg/Links to an external site..
+
 
 ### Feedback
-### Comments to classmates
+Excellent response. This is a very thorough summary of the many ways they appropriated established buildings and art in attempt to legitimize their authority. 
 
+These are amazing images and I am happy to know that these museums have copies in their collection should I find myself in DC!
+### Comments to classmates
+#### Dear Alexis 
+
+As you described, the Great Mongol Shahnama is a great example of how Mongol rulers used art in an attempt to assert the legitimacy of their authority. I do want to point out, "scholars believe this complete manuscript probably comprised about 280 folios (pages) with 190 illustrations painted by several different artists," and the rendering of The story of Bahram Gur slaying the monstrous Karg is just one of that. Therefore, the attempt is not just surrounding on this one particular story but rather the fact they embrase all the stories in the book and celebrate the pre-existing Persian culture elements as their new rulers. It is a kind of self identication toward into the pre-existing Persian culture that showing their willingness to adopt that make their message more powerful. 
+
+Two and half years ago, I traveled to DC and has viewd four Folios from that book inside National Museum of Asian Art / Freer Gallery of Art:
+
+1. Rustam slays Ashkbus and his horse
 ## Midterm Exam Part 2 Essay Question
 * **score** 30 / 30
 ### Feedback
