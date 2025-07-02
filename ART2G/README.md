@@ -315,11 +315,33 @@ Frank
 ## Week 9 Write About It
 * **score** 10 / 10
 ### Prompt
+What were the positive and negative impacts of the Safavid dynasty establishing Shi'a Islam as the state religion? In your response please consider political and artistic/cultural consequences and the role it played in shaping a national identity?
 ### Submission
+By establishing Shi'a Islam as the state religion, the Safavid dynasty created some positive and negative impacts. From the positive view, this act strengthened state and forged national identity, encouraged pilgrimages and cultural exchange, and also influenced and enriched artistic and architectural styles. However, it also increased the conflict with Sunni neighbors, created potential for religious persecution and intolerance, and shifted the artistic patronage focus from Sufism.
 
+        After making Shi'ism as the state religion, the Safavid dynasty made a strong ideology to unified the disparate regions of Iran into a single Safavid rule. This differentiated the Safavid Empire from the Ottomans and Shaibanids, both followed Sunni teaching. Because of that, it helped Iran avoid absorption into their control and created a unique Persian national identity (Brown-Hejazi). Their strong investment in architecture and decorating shrines of Shi'a saints around two central Iran cities, Karbala and Najaf, encouraged pilgrimages across the empire and therefore amplified cultural exchange. These travels strengthened the cultural and religious unity across the massive Safavid dynasty (Brown-Hejazi). The embracement of Shi'a Islam affected the Safavid architecture and art style. Such influence is very obvious in the decoration of Shi'a shrines. The unified state centralized power and produced extensive wealth for a massive amount of art patronage to create Islamic art. The result is a huge amount of painted manuscripts, elegant textiles, such as the Ardabil Carpet , and giant architecture decorated with new "haft-rangi" tiles and "aineh-kari" mirror work (Macaulay). The collection of these artworks built a agglutinate visual identity that lasted into later dynasties. These impacts lifted the artistic achievement of the Safavid dynasty to represent the Muslim aesthetic in Western view for a long period of time in the late 19th and early 20th century  (Macaulay).  
+
+        However, the cost of establishing a state religion is huge and comes with some notable negative impacts also. First, this caused the Safavid empire to have more conflicts with their surrounding Sunni Neighbors. Both the Ottoman on their west and Shaibanids on their east are Sunni Muslim (Brown-Hejazi). The religious distinction fostered endless tensions and conflicts during the sixteenth century and created a lot of issues for the Safavid empire. By establishing an official state religion, they also increased the potential for religious persecution and intolerance of other Muslim teaching or religions. Finally, this could shift the artistic patronage focus away from Sufism. Because the Safavids were descendants of Sufi shaikhs who were greatly influenced by Sufism cultural and artistic before the establishment of Shi'a Islam as their state religion, such acts may reduce and limit their Sufism cultural and artistic expression. The cultural cost of establishing a state religion in the Safavid dynasty influenced a lot of modern day international tension in the Middle East. 
+
+        The establishment of  Shi'a Islam as the state religion of the Safavid dynasty is fruitful but also costly at the same time. While it built a stronger national identity,increased cultural exchanges and economy from transportation and tourism, and enriched artistic and architectural styles, it also created everlasting tension and potential of conflicts with their Sunni neighbors for Iran. Studying their impacts help us to understand the dynamic and complexity of international tension in the contemporary Middle East better.
+
+Works Cited
+
+Brown-Hejazi, Alexandria, "The Safavids, an introduction," in Smarthistory, October 20, 2020, accessed
+        June 3, 2025, smarthistory.org/safavids-intro/Links to an external site..
+
+Macaulay, Elizabeth, "The Ardabil Carpet," in Smarthistory, August 9, 2015, accessed June 3, 2025,
+       smarthistory.org/the-ardabil-carpet.
 ### Feedback
+Excellent response. Wonderful to see you engage with positive and negative impact. 
 ### Comments to classmates
+#### Dear Jinjingyi:
 
+I wonder what differences it will be about the quality of their carpet attributed from their establishemnt of Shi’a Islam. In other words, if they do not declare Shi’a Islam as their state relgion would they also produce nice artwork such as Ardabil carpet, or it will be preoduce in the same quality regardless. I asked this because two weeks ago I went to Turkey and tour around a carpet factory and they also show me very nice carpet. And these carpet were produced under the culture of Ottoman empire, which is Sunni Islam. So I have difficulty to complete attribute the creation of their art are due to such establishment of state religion. I am not sure there are a linkj between these two thing. And it may be a non-unique consequence based on omitted condition. 
+
+ 
+
+Frank toured carpet factory (handmade) in Avanos, Nevşehir, Türkiye last month.
 ## Week 10 Write About It
 * **score** 10 / 10
 ### Prompt
