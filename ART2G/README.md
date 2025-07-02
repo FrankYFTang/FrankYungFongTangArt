@@ -323,11 +323,36 @@ Frank
 ## Week 10 Write About It
 * **score** 10 / 10
 ### Prompt
+What work of art, architectural structure or concept from this weeks content was most interesting to you and why? Please also post a peer comment. 
 ### Submission
+Blue Mosque
 
+        The most interesting art, architectural structure or concept from the content of this week is surely Blue Mosque for a simple reason- I visited it on May 12, 2025 during my Turkey trip. I know the teacher asked us to write based on the content of the week but it is just too hard for me to “forget” what I saw three weeks ago while I write this essay. Please forgive me for including what I personally see there, although this information is not mentioned in the week module.
+
+        The official name of Blue Mosque is Sultan Ahmet Mosque. It was patronized by Sultan Ahmet I and completed in CE 1617. It was built southwest of Hagia Sophia, which was completed more than one thousand years prior. It is adjacent to the Byzantine Hippodrome and visitors enter from that. Clearly it was built to “compete” toward Hagia Sophia by the choice of location (Fig 1 & 2). It has six pencil-shaped minarets. The northwest side next to the Byzantine Hippodrome is the courtyard, with a central entrance which currently only allows exit from the courtyard (Fig 3 & 4). The central entrance to the courtyard is very beautiful and decorated with a muqarnas semi-vault and inscription panels on top and below the muqarnas (Fig 5 & 6). Visitors cannot enter that central entrance but instead turn right toward the side entrance to the dome and prayer hall on the southwest side of the mosque. Along the southwest wall there are a series of water taps with marble seats served as ablutions (Fig 7 & 8). Several people took out their shoes and washed their feet there before entering the mosque. All the visitors need to have cloth to cover their shoulder and knee and females need to cover their head with a scarf or head covering. Visitors need to remove their shoes and carry them before setting foot into the hallway of the mosque. The exterior hallway is supported by arches with alternating blocks of color and their ceilings are decorated by arabesque pattern (Fig 9 & 10). The wood doors are decorated by Islamic geometric tenfold star patterns (Fig 11 & 12). Enter the prayer hall, all the grounds are covered by red carpet and no visitors should place their shoes on the ground. Instead, they should either hold their shoes or place them on the provided shoes shelf on the side. The dome is magnificent, floating on top of 32 small stained glass windows (Fig 13). The center part of the dome is a big circle in a dark blue background with calligraphy in gold text and some dark red. A thick ring of 16 pillars is drawn between the stained glass windows and the center circle. Arabesque patterns in red, blue and white filled these shapes. The dome is set on top of four huge “elephant legs”, the term the tour jokingly called the large supporting pillars, with the assistance of four large half domes. Each large half dome has 13 stained glass windows and sit on top of three smaller half domes. Each smaller half dome has 5 stained glass windows. Therefore, there are a total of 12 small half domes (Fig 14-16). Muqarnas semi-vault are built below the 12 half domes (Fig 17). There are several wire lamp rings hung from the ceiling. Each lamp ring has many lamps attached but also some opaque white balls. These opaque white balls are Ostrich Eggs which are used as repellent against spiders or other insects. The upper part of the large pillars are decorated by blue and green vegetation patterns.  The lower parts are flueted and a ring of calligraphy separates these sections (Fig 18). The front of the mosque is roped and reserved for Muslim believers to enter to pray. There is a Hünkâr Mahfili, a white platform elevating near the front right pillar  reserved for the Sultan to pray. The Mihrab is in a similar style as the central entrance of the mosque, with a golden muqarnas semi-vault and two inscription panels on top of it (Fig 20). A very tall and narrow and pointed Minbar is right next to the Mihrab with a pointed golden top. A Kürsü, a wood Chair for Scholar that resembles a small cabinet or lectern, is placed on the front left (Fig 21). The courtyard is in rectangle shape and surrounded by a hallway formed by 32 small domes (Fig 22). Wooden windows with geometric patterns decorate the hallway. A fountain is in the center of the courtyard (Fig 23-24). Before exiting from the center entrance, the ground is formed by marble with a sixfold star pattern (Fig 25).
+
+        I made a 14 minutes video slide show of all the photos I took inside Blue Mosque. You can find it on
+https://www.youtube.com/watch?v=_CXramrTcRALinks to an external site.
+
+. 
+
+Works Cited
+
+Dr. Radha Dalal, "The Blue Mosque (Sultan Ahmet Camii)," in Smarthistory, August 8, 2015, accessed June 14, 2025,
+        https://smarthistory.org/the-blue-mosque-sultan-ahmet-camii/Links to an external site..
 ### Feedback
-### Comments to classmates
+Great choices and comments that demonstrate an attentive engagement with the content for this week. Lovely analysis. 
 
+The Blue Mosque was covered so it is fine for you to share your direct experience. It adds so much to the learning experience of other students.
+
+Gorgeous images! It is so interesting to see a carpet like painting on the ceiling. The use of stained glass is also very interesting. 
+
+I just don't want students to skip the reading and module lecture and google their responses. This is a matter of equitable grading. 
+### Comments to classmates
+#### Dear Weiton
+
+I encounter many similar one during my Turkey trip last month. None of them are pretty as this one but all carry very similar shape. The following are filmed inside "History & Arts Museum" located in 
+T.C. Kültür ve Turizm Bakanlığı İzmir Tarih ve Sanat Müzesi/ Museum Of History And Art. You can find more photos I took of them at https://photos.app.goo.gl/L644HeSY4xs45RK58Links to an external site. 
 ## Art 2G Research Essay Assignment
 * **score** 200 (A) 
 ### [Submission](https://docs.google.com/document/d/1AEI5yN3qoKYDRYUT3dzSRLKq1pNRpEHGKkFuBSYqtmI)
