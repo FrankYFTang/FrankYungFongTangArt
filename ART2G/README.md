@@ -213,7 +213,7 @@ Fein, Ariel. “Rock Crystal Ewer, San Marco.” Smarthistory,
 
 Hillenbrand, Robert. Islamic art and architecture. Thames & Hudson, 2024.
 ### Feedback
-
+Wonderful example and you do a good job of providing specific details of how we see the influence of other cultures.  Love seeing a photo of you seeing this work!
 ### Comments to classmates
 #### Dear Ares:
 
