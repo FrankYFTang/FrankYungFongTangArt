@@ -330,11 +330,18 @@ Frank
 
 ## Art 2G Research Essay Assignment
 * **score** 200 (A) 
-### Prompt
-### Submission
+### [Submission](https://docs.google.com/document/d/1AEI5yN3qoKYDRYUT3dzSRLKq1pNRpEHGKkFuBSYqtmI)
 
 ### Feedback
+Strong paper that is beautifully written, supported by strong scholarship with an excellent engagement with the formal elements of the art and the historical and cultural contexts.
 
+The writing demonstrates strong writing and critical thinking skills.
+
+Love this thorough deep dive into the subject area.
+
+I would love to see you present this to the broader Foothill Campus as an RSLS project or for a Heritage Month event. The RSLS Symposium is May 2026. I think your topic would be very inspiring for our campus community. 
+
+https://foothill.edu/rsl-symposium/
 ## Week 11:  Write About It 
 * **score** 10 / 10
 ### Prompt
