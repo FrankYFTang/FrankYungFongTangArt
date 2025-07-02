@@ -308,10 +308,31 @@ Frank
 ## Research Activity 3 What is your guiding question and thesis statement?
 * **score** 20 / 20
 ### Prompt
+
+For this discussion, please answer the following questions and post a peer response:
+
+1. What is the guiding question for your research paper?
+
+2. How can your guiding question be rephrased as a thesis? Please include the thesis statement in your response. 
+
+3. What is going well in your paper?
+
+4. What are challenges in your paper?
+5. 
 ### Submission
+What is the guiding question for your research paper?
+How is the fivefold or ten-pointed stars pattern used in Islamic geometric design in Islamic art? What are the challenges of their usage?
 
+How can your guiding question be rephrased as a thesis?
+Fivefold or ten-pointed stars pattern design in Islamic art is important and significant although the usage of such usage carries more design challenges than other pointed stars.
+
+What is going well in your paper?
+I found three great examples of fivefold and ten-pointed stars of Islamic art from the photos I took in the The Metropolitan Museum of Art two years ago as my research example. These photos in detail are very helpful. I purchased four books and downloaded some good papers to read so far. All are relevant and provide different perspectives of the topic. I also found several very good books and papers about this topic for the research. So far these materials provide enough information for the research. 
+
+What are the challenges in your paper?
+There are many things I like to cover in this research paper and I need to limit the scope. 
 ### Feedback
-
+The thesis is good. You use the word usage twice in one sentence. Consider saying it once. You might also consider being specific about the significance. The challenges of other pointed stars might be part of the overall introduction. 
 ## Week 9 Write About It
 * **score** 10 / 10
 ### Prompt
