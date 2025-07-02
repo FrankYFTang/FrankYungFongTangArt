@@ -95,9 +95,97 @@ Frank
 ## Week 2 Write About It
 * **score** 10 / 10
 ### Prompt
+What impact did Islamic scholarship during the Abbasid Caliphate in Baghdad in the Middle Ages have on later development of Western thought (please provide three examples)? Please also post a peer comment.
 ### Submission
+There are many impacts that influenced the later development of Western thought by Islamic scholarship during the Abbasid Caliphate in Baghdad in the Middle Ages. In the Abbasid Caliphate, encouraged by al-Rashid and al-Ma’mun, they translated a lot of text from Greek and gathered scholars from different cultural or even religions to collaborate together and therefore preserve a lot of ancient knowledge for the human kind (Gutas). Their desire for knowledge also helped them to acquire paper making technology from China and later spread to Europe (Hannawi). 
 
+        One important area of contribution is mathematics. Persian mathematician Al-Khwarizmi invented a systematic approach to algebra (Soofi) and formalized how mathematics works (Rashed). He also introduced the Hindu-Arabic numeral system which later quickly adopted in the West(Mohamed). His contributions were foundational for the development of mathematics, technology, science, and commerce in the West. These helped to advance the intellectual development of the Renaissance (Elamin). 
+
+        The second example is the development of trigonometry functions in the 10th century by Persian mathematician and astronomer Abu al-Wafa al-Buzjani (Berggren). His comprehensive and rigorous publication established trigonometric functions, identities, and spherical trigonometry systematically advanced the foundation for the field (Maigida). During the Middle Ages and Renaissance, the Latin translation of his works supplied Western scholars vital mathematical tools to improve the field of astronomy, navigation, physics, and engineering (Selin). His mathematical theory greatly impacted the Scientific Revolution in the 16th and 17th centuries and the subsequent development of Western thought (Hashemi).
+
+        During  the 11th-12th centuries, Omar Khayyam significantly impacted later Western thought in his research and improvement in his systematic classification and solution of cubic equations (Mardia). His theory went beyond geometric solutions and outlined groundwork for the development of modern algebraic theory (Siadat and Tholen). His parallel postulate of Euclidean geometry work offered critical insights which later contributed to the final development of non-Euclidean geometries in the 19th century (Smilga). His work challenged several long-held assumptions and breakthroughs the horizons of mathematical thought in the West (Gangolli).
+
+         The advancements in mathematics made by Al-Khwarizmi, Abu al-Wafa al-Buzjani, and Omar Khayyam are three examples best demonstrating the kind of impact Islamic scholarship accomplished during the Abbasid Caliphate in Baghdad in the Middle Ages later influenced the development of Western thought. There are many other examples in the field of translation, knowledge preservation, optical, geometric, artistic design (Zulfa and Mawardi), and medicine (Hemat and Hamid). 
+
+Works Cited
+
+Berggren, John Lennart. "History of mathematics in the Islamic world: The present
+        state of the art." Review of Middle East Studies 19.1 (1985): 9-33.
+
+Elamin, Mustafa Osman I. "Muhammad ibn Musa al-Khwarizmi: The Pioneer of
+        Algorithms and His Enduring Legacy in Artificial Intelligence." Journal of
+        Ecohumanism 3.8 (2024): 10853-10874.
+
+Gangolli, Ramesh. "Asian contributions to mathematics." Portland Public
+        Schools Geocultural Baseline Essay Series (1999).
+
+Gutas, Dimitri. Greek Thought, Arabic Culture: The Graeco-Arabic Translation Movement
+        in Baghdad and Early'Abbasaid Society (2nd-4th/5th-10th c.). Routledge, 2012.
+
+Hannawi, Abdul Ahad. "The Role of the Arabs in the Introduction of Paper into
+        Europe." Mela Notes 85 (2012): 14-29.
+
+Hashemi, J. M. "Muslim Philosophy and the Sciences. The Muslim Almanac."
+        International Conference on Business Economics, Engineering Technology, Medical
+         and Health Sciences. 2020.
+
+Hemat, Toryalai, and Nasar Ahmad Hamid. "Medical Inventions in the Abbasid
+        Caliphate and their Development in the Present Era." Journal of Health,
+        Medicine, and Clinical Studies 2.1 (2013): 16-30.
+
+Maigida, Abdulrahman Yusuf. "Muslims in Pioneering Modern Knowledge:
+        Chronicles of The Freely or Unconsciously Surrendered Legacies To The
+        West." Nazhruna: Jurnal Pendidikan Islam 3.3 (2020): 406-424.
+
+Mardia, K. V. "Omar Khayyam, René Descartes and solutions to algebraic
+        equations." History of the Mathematical Sciences (2004): 135-148.
+
+Mohamed, Mohini. The lives and contributions of selected non-western
+        mathematicians during the Islamic medieval civilization. Temple University, 1990.
+
+Rashed, Roshdi. Classical mathematics from al-Khwarizmi to Descartes. Routledge,
+        2014.
+
+Selin, Helaine, ed. Encyclopaedia of the history of science, technology, and medicine
+        in non-westen cultures. Springer Science & Business Media, 2013.
+
+Siadat, M. Vali, and Alana Tholen. "Omar Khayyam." Math Horizons 28.1 (2020): 12-15.
+
+Smilga, Voldemar. In the Search for Beauty: Unravelling non-Euclidean Geometry.
+        World Scientific, 2018.
+
+Soofi, Yasmine. "The Father of Algebra."
+
+Zulfa, Nadiya, and Kholid Mawardi. "Architecture and islamic arts during the
+        abbasiyah dynasty." Innovative: Journal Of Social Science Research 3.2 (2023):
+        8026-8037.
 ### Feedback
+I believe I have already given you feedback on the extensive research you are doing for the discussion responses. 
+
+If you need further clarification please come to office hours so we can discuss this. 
+
+Weekly discussions are an opportunity for students to demonstrate that they have read the assigned reading and module content for this class. Weekly discussions are not a research project. While you are welcome to do additional research on your own, the response must be based on the content from this class to ensure equitable grading. 
+
+Please respect the parameters of the course as I have designed them
+## Comments to classmates
+#### Dear Hiady:
+
+I agree with you that the translation and preservation of Greek texts is a significant contribution of Islamic Scholar during the Abbasid Caliphate in Baghdad (Gutas; Kalin). Keskinbora published a systematic review of how "Canon of Medicine" written by Ibn Sina impact the education and development of western medicine (Keskinbora). 
+
+Works Cited 
+
+Gutas, Dimitri. Greek Thought, Arabic Culture: The Graeco-Arabic Translation Movement in
+        Baghdad and Early'Abbasaid Society (2nd-4th/5th-10th c.). Routledge, 2012.
+
+Kalin, Ibrahim. "Greek Thought, Arabic Culture: The Graeco‐Arabic Translation Movement
+        in Baghdad and Early Ábbasid Society (Second–Fourth/Eighth–Tenth Centuries)." (2003): 138-140.
+
+Keskinbora, Kader. "A systematic review of Ibn Sina’s (Avicenna)
+        studies: reflections on anatomy." Eur J Anat 20.1 (2016): 99-105.
+
+#### Dear Alexis
+
+The knowledge about medicine during this period is significant. I went to National Museum of Asian Art / Freer Gallery of Art in Washington DC two years ago and took the following four photos. These three pages show us the details of drawing preserving the knowledge in those days. 
 
 ## Week 3 Write About It
 * **score** 10 / 10
