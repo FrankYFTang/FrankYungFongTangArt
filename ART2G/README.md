@@ -338,11 +338,35 @@ Frank
 ## Week 11:  Write About It 
 * **score** 10 / 10
 ### Prompt
+Many contemporary artists of all faiths, cultures and ethnicities incorporate signs and symbols into their art that refer to the heritage and histories they carry as part of their identity. Please choose at least one work of art from this weeks module content and describe how the artist incorporates signs, symbols or concepts from history in his or her works. 
 ### Submission
+Mona Hatoum incorporates the shape of cheese grater in her artwork Grater Divide, 2002. Hatoum uses the wordplay of “Grater” in the title. The noun “greater” sounds similar to the adjective “greater”. So the name “Grater Divide” sound’s like “Greater Divide”. Therefore she uses a “greater” cheese “grater” to create this Greater Grater Divide. Notice cheese is a very important ingredient in Lebanese culture and cuisine. There are many different kinds of cheese, such as Baladi , Ackawi, Labneh, and Halloumi. Therefore cheese grater is a common kitchen ware in Lebanon and she use a “greater” one to symbolize the division of the people.
 
+Hatoum also amalgamated the combination of hair and Keffieh into her work Keffieh, 1993-99. On the Keffieh, she employed the pattern of fishnet, seawaves and straight line as symbols. I disagree with the analysis of these symbols mentioned in the module content. I believe the fishnet symbolizes the nature that Palestinian were trapped in, the seawaves symbolize the turbulence they are experiencing, and the straight line symbolizes the division line and barricade Israel IDF set to confine Palestinian. Finally the use of hair symbolizes all the Palestinian are physically trapped into this sad situation with their body without freedom. I think the symbolic meaning of this work is much darker than the content text describes.
+
+In her series, Harem, Lalla Essaydi rendered a different depiction of Harem than most of the exotic Harem painted by 18th century Orientalist painters. There is no nude body, but instead, inside the colorful and highly decorated Harem we see an elegant lady dress casually, gracefully, with a dress pattern in similar aesthetic style as the background, relaxingly enjoying her space. Essaydi incorporates the misrepresented location of Harem in many orientist works and “corrects” their mistake by reverting the view to an appropriate representation. The Harem symbolize the misinterpretation of who the Muslim females are, and the elegant decorative pattern, many are Islamic geometric patterns, symbolize the wisdom and technology of Islamic culture which are often overlooked by those orientalist painters.
 ### Feedback
+Lovely analysis. I appreciate how engaged you are with the topic for this week.
 ### Comments to classmates
+#### Dear Jinjingyi:
 
+Lalla Essaydi is a female, so... it should be "her works" not "his works" :)
+
+
+#### Dear Jinjingyi:
+Thank you for sharing your observation of Haji Noor Deen’s Allah Akbar and your reflection.  
+
+I have some doubt about your statement "He clearly draws a lot of his style from Chinese calligraphic traditions". The reason is when I view how he write his work in 
+
+https://www.youtube.com/watch?v=P9dI4RyZQeALinks to an external site.
+
+he is not using traditional Chinese brush but rather flat brush which not used in traditional Chinese calligraphic. He for sure got some more Chinese astethic influence than any other Arabic calligrapher but I think the influence from Chinese calligraphic traditions toward his work is very limited.
+
+Regards,
+
+Frank
+
+ 
 ## Extra Credit
 * **score** 20 / 0
 ### [Submission](https://docs.google.com/document/d/1T8lAcSX_vFQ9vnz_Uu_OvgRfJLZGbgJq7LDvDQGfjcE/edit?usp=sharing)
