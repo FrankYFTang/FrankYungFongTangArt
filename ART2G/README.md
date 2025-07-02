@@ -74,8 +74,8 @@ This is a great deal of research. I am not going to discourage it but please kno
 
 Jews, Christians, and Muslims have lived in close proximity in many many contexts. 
 
-## Comments to classmates
-### Dear Abigail:
+### Comments to classmates
+#### Dear Abigail:
 
 Thanks for your post. I agree with you that "The complex historical culture and context dating from the 7th to the 21st century influenced geopolitical tensions today". However, I think the assignment is asking us to explict mention which aspects of such tension could be better understand by studying them. I think your essay would be stronger if you explicitly provide one or two concrete examples. I am not sure about your mention of calligraphy. How is that collisions and/or collusions that is still echo in geopolitical tensions today? I would to read your elaboration on that. 
 
@@ -83,7 +83,7 @@ Regards,
 
 Frank
 
-### Dear Jinjingyi:
+#### Dear Jinjingyi:
 
 Thank you for your great essay. You made a great point about that the geographical placement has a significant impact. I agree that Arabian society was not isolated and was a part of broader regional dynamics. This is a great insight. I think the "multifarious cross-pollinations" idea you mentioned is very interesting. In a sense, the people in the Middle East today is not just Muslim but also inherited from tribal Arabic culture. Therefore, we won't be easily distingish between the impact from the religion and the impact from their pre-existing tribal culture. I love your conclusion that "Culturally and religiously, the Arabian Peninsula was pluralistic". 
 
@@ -167,7 +167,7 @@ If you need further clarification please come to office hours so we can discuss 
 Weekly discussions are an opportunity for students to demonstrate that they have read the assigned reading and module content for this class. Weekly discussions are not a research project. While you are welcome to do additional research on your own, the response must be based on the content from this class to ensure equitable grading. 
 
 Please respect the parameters of the course as I have designed them
-## Comments to classmates
+### Comments to classmates
 #### Dear Hiady:
 
 I agree with you that the translation and preservation of Greek texts is a significant contribution of Islamic Scholar during the Abbasid Caliphate in Baghdad (Gutas; Kalin). Keskinbora published a systematic review of how "Canon of Medicine" written by Ibn Sina impact the education and development of western medicine (Keskinbora). 
@@ -190,9 +190,52 @@ The knowledge about medicine during this period is significant. I went to Nation
 ## Week 3 Write About It
 * **score** 10 / 10
 ### Prompt
-### Submission
+This week we learned about Islamic art's eclecticism (the practice of deriving ideas, style, or taste from a broad and diverse range of sources) and embrace of other cultures. 
 
+For this weeks discussion please discuss one example from this weeks content where we see a blending of aesthetic styles, materials and inspiration from other cultures in an Islamic artistic expression in art or architecture. Please also post a peer response. 
+### Submission
+ Both Blue Qur'an and the al-ʿAziz ewer are examples of Islamic artworks mixed with aesthetic styles, materials and inspiration from other cultures. 
+
+     The folio from the "Blue Qur'an" demonstrates a mixing of aesthetic styles, material, and inspiration from the cultures in Christian Byzantine Empire. While they are not sure the exact dating, location of origin, and patronage of the Blue Qur'an, historians believe it was produced in the late 9th to mid-10th century in either Qairawan, Tunisia or Cordoba in Umayyad Spain. It is written in Kufic script but with a very unique medium on a very unique material and writing style. Usually Qur'an manuscripts are written against a white ground in brown or black ink with red voweling and diacritical marks. But Blue Qur'an is not! The calligraphy was written in gold and silver on a rare indigo-dyed parchment. This manner is similar to official documents and manuscripts from the Christian Byzantine Empire. For example, “the marriage contract of the princess Theophanou, who was dispatched from Constantinnople in 970 to marry the German emperor, was drawn up in gold lettering on purple-tinted vellum” (Hillenbrand, 71). This Islamic artistic expression clearly shows a blending of Isalamic art form with their Christian Byzantine Empire neighbor (Ekhtiar et al., 59).
+
+     Another example of Islamic artwork displaying such blending is the rock crystal al-ʿAziz ewer currently displayed in the Treasury of San Marco. First, the raw rock crystal material of this artwork, an “exceptionally large and clear crystal of pure quartz”, is likely originally mined in Madagascar (Fein). Second, the theme of the animal drinking from the ewer, represented by the ibex perched by the rim, is “rooted in pre-islamic religious rituals and common in metalwork” (Hillenbrand, 88). The inscription on the neck of the ewer, “blessing from Allah for the imam al-ʿAziz Biʾllah”, is in Arabic typography to denote its patron, Fatimid caliph al-ʿAziz Biʾllah. Finally, the artistic process to make this wonderful vessel employed wheel-cut carving technique, which demonstrates Egyptian craftsmanship (89). This amazing crystal rock ewer shows us a mixed spinning of pre-islamic religious aesthetic theme, Madagascar materials and Egyptian craftsmanship in an Islamic artwork.
+
+     From the three course materials cited in this essay, we better understand how surrounding culture influenced the aesthetic styles and use of materials in Islamic artwork and how their artists were invigorated by other cultures. 
+
+Works Cited
+
+Ekhtiar, Maryam, Priscilla P. Soucek, Sheila R. Canby, and Navina Haidar, ed. Masterpieces
+        from the Department of Islamic Art in The Metropolitan Museum of Art. 1st ed.
+        New York: The Metropolitan Museum of Art, 2011. no. 30, pp. 54, 58–59, ill. p. 59 (color).
+
+Fein, Ariel. “Rock Crystal Ewer, San Marco.” Smarthistory,
+        smarthistory.org/rock-crystal-ewer-san-marco/. Accessed 22 Apr. 2025.
+
+Hillenbrand, Robert. Islamic art and architecture. Thames & Hudson, 2024.
 ### Feedback
+
+### Comments to classmates
+#### Dear Ares:
+
+I took about 3,600 photos ( https://photos.app.goo.gl/M8YnV9o1QNfrGTUL8Links to an external site.  ) when I visted the Metropolitan Museum of Art in May 2023. That probably only cover a quarter of the space I can visit. I only visited there for three days at that trip. For the Islamic art exhibited in the MET, I took about 250 photos. You can see all the 439 photos about Islamic arts I took inside National Museum of Asian Art / Freer Gallery of Art, DC and Metropolitan Museum of Art, New York City from the following link: https://photos.app.goo.gl/aEuVif5JqJ3efiQw6Links to an external site. 
+
+#### Dear Ares
+
+This discussion assignment requests us to discuss artwork which shows “a blending of aesthetic styles, materials and inspiration from other cultures in an Islamic artistic expression”.  Your post shows a very detailed description of the style, and subjects on this beautiful Islamic artistic expression. I believe your essay would be greatly improved if you add more analysis about where you observe the culture blending from it. The mention of San Marco in Venice is only about its current owner and where we could see this artworks but not related to the blending displayed on the ewr. From my point of view, this ewr shows the blending from four aspects- material, theme, the writing system of the text, and the production technique. We know the material is likely from Madagascar. According to Hillenbrand, the ibex perched by the rim, is “rooted in pre-islamic religious rituals and common in metalwork” (Hillenbrand, 88). The writing system of the text on the neck is Arabic. Finally, the production technique is Cairo craftsmanship in Egypt. We see the bleeding of these four cultural influences on this work.
+
+Works Cited
+
+Hillenbrand, Robert. Islamic art and architecture. Thames & Hudson, 2024.
+
+#### Dear Jinjingyi:
+
+Cappella Palatina is surely a place where we observe “blending of aesthetic styles, materials and inspiration from other cultures in an Islamic architecture”. In addition to the Islamic muqarnas, Romanesque layout, and Byzantine theme and artistic style on mosaic, I would like to add one additional element I observed from the photos of culture blending- the capitals of columns inside Cappella Palatina are in Corinthian order, showing a Greek influence.
+
+ 
+
+Regards,
+
+Frank
 
 ## Week 4 Write About It
 * **score** 10 / 10
@@ -200,6 +243,7 @@ The knowledge about medicine during this period is significant. I went to Nation
 ### Submission
 
 ### Feedback
+### Comments to classmates
 
 ## Midterm 1 Part 2 Essay Question
 * **score** 30 / 30
@@ -221,6 +265,7 @@ The knowledge about medicine during this period is significant. I went to Nation
 ### Submission
 
 ### Feedback
+### Comments to classmates
 
 ## Week 6 Write About It
 * **score** 10 / 10
@@ -228,13 +273,15 @@ The knowledge about medicine during this period is significant. I went to Nation
 ### Submission
 
 ### Feedback
- 
+### Comments to classmates
+
 ## Week 7 Write About it
 * **score** 10 / 10
 ### Prompt
 ### Submission
 
 ### Feedback
+### Comments to classmates
 
 ## Research Activity 2 What are your Sources
 * **score** 20 / 20
@@ -249,6 +296,7 @@ The knowledge about medicine during this period is significant. I went to Nation
 ### Submission
 
 ### Feedback
+### Comments to classmates
 
 ## Midterm Exam Part 2 Essay Question
 * **score** 30 / 30
@@ -270,6 +318,7 @@ The knowledge about medicine during this period is significant. I went to Nation
 ### Submission
 
 ### Feedback
+### Comments to classmates
 
 ## Week 10 Write About It
 * **score** 10 / 10
@@ -277,6 +326,7 @@ The knowledge about medicine during this period is significant. I went to Nation
 ### Submission
 
 ### Feedback
+### Comments to classmates
 
 ## Art 2G Research Essay Assignment
 * **score** 200 (A) 
@@ -291,13 +341,15 @@ The knowledge about medicine during this period is significant. I went to Nation
 ### Submission
 
 ### Feedback
- 
+### Comments to classmates
+
 ## Extra Credit
 * **score** 20 / 0
 ### Prompt
 ### Submission
 
 ### Feedback
+### Comments to classmates
 
 ## Final Exam PART 2 Essay Question
 * **score** 50 / 50
@@ -305,3 +357,4 @@ The knowledge about medicine during this period is significant. I went to Nation
 ### Submission
 
 ### Feedback
+### Comments to classmates
