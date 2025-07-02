@@ -240,18 +240,41 @@ Frank
 ## Week 4 Write About It
 * **score** 10 / 10
 ### Prompt
+* Islam spread rapidly across vast geographical locations and cultures. Explain how the form of the mosque varies among far-flung land with reference to three examples.
+* Despite the contrasts, what features do mosques typically have in common. 
+* Please also post a peer comment. 
 ### Submission
+Since the 7th century, Islam quickly spread across many cultures and geographical locations. This diversity created a rich collection of mosque architecture. Although these buildings serve the common purpose of Muslim worship, their artistic forms changed significantly, embodying commodious building materials and regional influences. We examine three distinct mosque types: the hypostyle, the four-iwan, and the centrally-planned, to render the disparity of Islamic architecture and the common architectural features that unite them (Weisbin).
 
+        The hypostyle mosque follows the layout of the Prophet Muhammad's house in Mecca. It denotes an early and diffusely adopted architectural form in Islamic lands. The Great Mosque of Kairouan in Tunisia shows us the key features of the hypostyle mosque. It was built in the 9th century and incorporates a rectangular stone structure with a hypostyle hall adjacent to a large inner sahn. The hypostyle hall is featured by a forest of columns, blue and red (Hillenbrand, 46). The style of Syrian bell-tower design and probable ancient Roman lighthouses influenced the design of its three-tiered minaret. They were constructed by using repurposed older materials, or spolia. This usage symbolically asserted the Islamic conquest of Byzantine lands. The emphasis on a columned prayer hall in this early design established the foundation for many later mosque designs.
+
+        In 11th-century Iran, the four-iwan mosque style was developed and introduced a new architectural concept that spread across the Islamic world. The Great Mosque of Isfahan vividly rendered this evolution (Dalal). The structure originally was a hypostyle mosque but the Seljuks transformed it into a four-iwan building later. This mosque incorporates four iwans onto the sahn. Each wall of the sahn is marked by a monumental blue iwan. The iwans are vaulted spaces open toward the sahn. Many golden muqarnas were built in the iwans to form a sense of holiness (Hillenbrand, 241). The walls are decorated with beautiful blue tiles, surrounding the monumental blue iwans. The qibla iwan which faces Mecca is the biggest and most ornately decorated. Two cylindrical minarets guarded the south iwan. This open courtyard with monumental iwans design became a popular template for mosques from India to Cairo. This mosque architectural style illustrates the influence of Persian architectural traditions to Islamic community.
+
+        Muslims in the Ottoman Empire developed a unique centrally-planned mosque architecture style. This centrally-planned mosque style development departed from the widespread adoption of the four-iwan plan in the rest of the world. In the Selimiye II Mosque in Edirne, Turkey we observe the key features of a centrally-planned mosque (Hillenbrand, 276). During the 16th-century, the talented Ottoman Empire architect Mimar Sinan designed the Selimiye II Mosque and illustrated the culmination of experimentation with the central plan. The most outstanding feature of this mosque style is its giant central dome. This giant central dome is higher and wider than that of Hagia Sophia to symbolize the Ottoman architectural power. The dome is decorated with calligraphy and vegetation patterns. Forty small windows on the base of the dome bring in light to illuminate the beautiful color of the dome. The octagonal space is filled with peaceful light and lively color. This distinct approach of mosque design pushes the piers into the walls to make the dome more spacious. The result is amazing and great.
+
+        Across different regional variations of mosque architecture, most mosques were built with a small common set of features for their main function of community worship. The core elements include the sahn, the fountain, the qibla wall, the mihrab, and the minaret. Sahn is the open courtyard adjacent to the prayer hall. Fountain provides cool airflow and ablutions. The Qibla wall is always present to indicate the direction of Mecca. Mihrab, a niche in the qibla wall, clearly marks the direction. There is always one or several minarets, or towers, to announce the call to prayer. In addition, most mosques incorporate one or more domes, or qubba, to represent the vault of heaven and bring their worshipers to cast their attention to God. Calligraphic friezes and inscriptions, often from the Qur'an, and hanging lamps, are popular decorations. These elegant decorative elements further enhance the aesthetic for the mosque.
+
+Works Cited
+
+Dalal, Radha. “The Great Mosque (or Masjid-e Jameh) of Isfahan.” Smarthistory The Great Mosque or Masjide Jameh of Isfahan Comments, smarthistory.org/the-great-mosque-or-masjid-e-jameh-of-isfahan. Accessed 30 Apr. 2025. 
+
+Hillenbrand, Robert. Islamic art and architecture. Thames & Hudson, 2024.
+
+Weisbin, Kendra. “Common Types of Mosque Architecture.” Khan Academy, Khan Academy, www.khanacademy.org/humanities/art-islam/beginners-guide-islamic-world-art/beginners-guide-islamic-art/a/common-types-of-mosque-architecture. Accessed 30 Apr. 2025.
 ### Feedback
+Excellent response that demonstrates your strong critical thinking skills through the synthesis of content. Excellent examples and a thoughtful analysis that tethers changes in Mosque architecture to geographic and cultural precedents and in some cases the use of spolia.
 ### Comments to classmates
+#### Dear Xiyuan:
 
+You use three great examples to illustrate how the form of the mosque varies. The bi-color, two-tier arches in Great Mosque of Córdoba in Spain create a dizzying optical effect of the hypostyle hall. The columns and capitals are also spolia from previous work and show Roman influence. It is mainly presented with orange color. The Shah Mosque in Isfahan, Iran was built later but clearly showing Persian from its blue color scheme. The Niujie Mosque in Beijing not only incorporates traditional Chinese architectural features but also uses red post and blue lintel. I found the variation of color scheme in these examples very interesting. I think we could summarize that the mosques are functionally common but diverse in color scheme and aesthetic  representation.
 ## Midterm 1 Part 2 Essay Question
 * **score** 30 / 30
-### Prompt
-### Submission
-
 ### Feedback
+Excellent synthesis of content demonstrating your strong critical thinking skills. The response is thorough, beautifully written with an attentive engagement with the formal elements of the works you are asked to write about. Good use of key terms. You also do a wonderful job of situating this structure in its historical and cultural context. 
 
+Wonderful to see you include cited references to the assigned textbook reading to support your claims.
+
+This was a pleasure to read. You are a strong scholar. 
 ## Research Activity 1 What is Your Topic?
 * **score** 20 / 20
 
