@@ -25,7 +25,7 @@ This page lists links pointing to Museum and Art Galleries I visited:
 * BAMPFA (Berkeley Art Museum and Pacific Film Archive)Berkeley, California
   * [2024-8-3](https://photos.app.goo.gl/SxjTcmtJaYLhra2H7), Berkeley, California
   * [2025-8-30](https://photos.app.goo.gl/2awGTxCVgpkkXkzc9), Berkeley, California
-* * [San Jose Museum of Art](https://photos.app.goo.gl/Py57GArqEia1koj26), San Jose, California
+* [San Jose Museum of Art](https://photos.app.goo.gl/Py57GArqEia1koj26), San Jose, California
 * [Scottish Rite Temple](https://photos.app.goo.gl/SbMxjSUNvMZgzT9B9), San Jose, California
 * [Arts in Camel-by-the-Sea](https://photos.app.goo.gl/abiZ3uzq9RXoQJt1A), Carmel-by-the-Sea, California
 * [Triton Museum](https://photos.app.goo.gl/j29LGKoGfGf5Kk318), City of Santa Clara, California
