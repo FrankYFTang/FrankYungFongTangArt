@@ -87,22 +87,27 @@ This page lists links pointing to Museum and Art Galleries I visited:
 ## South Korea
 * [Changdeokgung Palace](https://photos.app.goo.gl/utqQLn5C8ZT8ou4F8), Seoul, South Korea
 ## Turkey
+### Istanbul
 * [The whole Turkey trip 2025](https://photos.app.goo.gl/QDyo1ydr1wjYrH8G9)
 * [Islamic Turkey](https://photos.app.goo.gl/dLyMQ895whCjRx6t6)
 * [Hagia Sophia, Istanbul](https://photos.app.goo.gl/PTBphv2yqyfGtDce9), Turkey
 * [Hippodrome, Istanbul](https://photos.app.goo.gl/TuqRug4N2rRqe9KE8), Turkey
 * [Blue Mosque, Istanbul](https://photos.app.goo.gl/GnZbgvqnA4Kc3bx86), Turkey
+* [Bosphorus Boat Ride](https://photos.google.com/album/AF1QipOFUZCfGJa8hg1WAzwa8Qy31o0zZnEwXkbrS518), Turkey
 * [Chora Church / Kariye Mosque](https://photos.google.com/album/AF1QipNa03ish9SYim7GAakespx3sszOoocJ7bIfzLqH), Turkey
 * [Basilica Cistern](https://photos.google.com/album/AF1QipN-r-KVl8dhK8rFlW7sa0M2Q9QIwL_4b9a_Naq6), Turkey
-* [Archaeological Museum](https://photos.google.com/album/AF1QipOtkhqNSuz-i1RBnBhHUD6smUyLWYMzWFLymBMg), Turkey 
+* [Archaeological Museum](https://photos.google.com/album/AF1QipOtkhqNSuz-i1RBnBhHUD6smUyLWYMzWFLymBMg), Turkey
+### Cappadocia / Konya toward Antalya
 * [Göreme Open Air Museum (underground city) + Uçhisar castle](https://photos.app.goo.gl/SNfpRTTYhJV1KwXu6), Turkey
 * [Mevlana Museum (Mystic Rumi)](https://photos.app.goo.gl/7VWcXZwDBC62VVS2A), Turkey
 * [Roman Theatre of Aspendos](https://photos.app.goo.gl/HPArjaVQPL4LsKkg8), Turkey
 * [Roman Aqueducts at Aspendos](https://photos.app.goo.gl/cxK4M3Zxigu3D6QG8), Turkey
+### Antalya
 * [Perge](https://photos.app.goo.gl/8dQV7enwtBEbYB9K9), Turkey
 * [Antalya Museum](https://photos.app.goo.gl/A1uKEEMLkAsMScgm8), Turkey
 * [Colossae](https://photos.app.goo.gl/XigtHGfaE5kNej2C6), Turkey
 * [Hierapolis](https://photos.app.goo.gl/1vr1yqjLpkRpzyhn8), Turkey
+### Seven Churches
 * [Laodicea](https://photos.app.goo.gl/TVjFypZneErF2vYf7), Turkey
 * [Philadelphia](https://photos.app.goo.gl/6mg8Cxov8nwiWFjH6), Turkey
 * [Sardis](https://photos.app.goo.gl/TTZM52oeMPtN81AeA), Turkey
