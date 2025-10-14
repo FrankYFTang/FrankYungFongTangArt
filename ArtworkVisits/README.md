@@ -46,6 +46,9 @@ This page lists links pointing to Museum and Art Galleries I visited:
 * [The Getty](https://photos.app.goo.gl/csSyzho8GjcdSrGv5), Los Angeles, California
 * [MOCA](https://photos.app.goo.gl/beqZ2mgCUsyvudD97), Los Angeles, California
 
+## Atlanta, Georgia
+* [High Museum](https://photos.app.goo.gl/wm439jYZoyGaZkMv7), Atlanta, Georgia
+
 ## Seattle, Washington
 * [Trol of Fremont](https://photos.app.goo.gl/jPLafER7nCnyGQC1A), Seattle, Washington
 
