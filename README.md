@@ -56,17 +56,20 @@ Below are links to some arts I made since 2018
 * [ART 20 Color Theory](ART20) (Winter 2025)
 * [ART 47B Watercolor II](ART47B) (Spring 2025)
 * [ART 2G Introduction to Islamic Art](ART2G) (Spring 2025)
+* [ART 70R Independent Study in Art](ART70R) (Summer 2025)
 * [ART 1 Introduction to Art](ART1) (Fall 2025)
+* [ART 19C Oil Painting II](ART19C) (Fall 2025)
+* [ART 71R Independent Study in Art](ART71R) (Fall 2025)
 
 ## Papers Submission for Other Courses took in De Anza College
 * [ECON 1 Principles of Macroeconomics](ECON1) (Spring 2013)
 * [ECON 2 Principles of Microeconomics](ECON2) (Fall 2013)
 * [EWRT 1A Composition and Reading](EWRT1A) (Fall 2023)
-* EWRT 2 Critical Reading, Writing and Thinking (Summer 2024)
+* [EWRT 2 Critical Reading, Writing and Thinking](EWRT2)(Summer 2024)
 * [HUMI 16 Arts, Ideas & Values](HUMI16) (Winter 2024)
 * [HUMI 7 Arts, Ideas & Values](HUMI7) (Fall 2024)
-* HUMI 15 Discussion on the Arts (Fall 2024)
-
+* [HUMI 15 Discussion on the Arts](HUMI15) (Fall 2024)
+* [HUMI 1 Creative Minds](HUMI1) (Fall 2024)
 
 ## Poems
 * [Chinese Poems / 中文五言及七言詩 ](https://github.com/FrankYFTang/FrankYungFongTangArt/tree/main/ChinesePoems)
