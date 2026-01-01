@@ -41,11 +41,11 @@ I took HUMI 1 Creative Minds in De Anza College during Fall 2025 . This repo arc
 * [Essay - Identify creative contributions!](Essay8.md)
 * [Essay - Write your paper!](Essay9.md)
 
-
-
-
-
-
 ## Final
 * [Self-Reflexive Final Exam](Final.md)
 
+## Extra Credit
+* [Extra Credit Option: Explore an Event- Beyoncé Cowboy Carter Tour, Mercedes-Benz Stadium, Atlanta, Georgia](https://docs.google.com/document/d/1QV3MMCUCTuUI3QAq_8ra26OX8hG_gsIlwfBtfQiZ6go)
+  * Feedback: This sounds like it was quite an event. I had several students who wrote about concert experiences and they sound so much more interactive than the stuff I attended many years ago. What a great experience to share with your family.
+* [Extra Credit Option: Explore What Matters](https://docs.google.com/document/d/1wAYz2ZS9sNYW9s0CgCgpYzVVSwwzRlDfc1pEPnGFFHA)
+  * Feedback: This is wonderful. Someday I hope to see your work in both MOMAs!
