@@ -16,3 +16,16 @@ I took HUMI 1 Creative Minds in De Anza College during Fall 2025 . This repo arc
 
 ## Journal
 * [Journal - Multiple Intelligences](Journal1.md)
+* [Journal - Verbal & Linguistic Intelligence](Journal2.md)
+* [Journal - Mathematical & Logical Intelligence](Journal3.md)
+* [Journal - Musical & Rhythmic Intelligence](Journal4.md)
+* [Journal - Visual & Spatial Intelligence](Journal5.md)
+* [Journal - Bodily & Kinesthetic Intelligence](Journal6.md)
+* [Journal - Interpersonal Intelligence](Journal7.md)
+* [Journal - Intrapersonal Intelligence](Journal8.md)
+* [Journal - Naturalist Intelligence](Journal9.md)
+* [Journal - Existential Intelligence](Journal10.md)
+* [Journal - Your Top Intelligences](Journal11.md)
+
+## Final
+
