@@ -1,6 +1,6 @@
 ## Submission
 
-[Moon Observation]("Moon Observation.pdf")
+[Moon Observation](HUMI1/Moon%20Observation.pdf)
 
 ## Feedback
 Thanks for sharing your response! 
