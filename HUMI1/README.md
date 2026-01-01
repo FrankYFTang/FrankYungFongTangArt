@@ -27,6 +27,25 @@ I took HUMI 1 Creative Minds in De Anza College during Fall 2025 . This repo arc
 * [Journal - Existential Intelligence](Journal10.md)
 * [Journal - Your Top Intelligences](Journal11.md)
 
+## Essay
+* Essay - Select a research subject!
+  * IM Pei
+  * Feedback: This is a wonderful choice and I look forward to reading your project! There are several really wonderful documentaries about I.M. Pei. The one that stands out on my memory showcased his design of the Miho Museum in Japan. It would be fairly old now, but you might look on YouTube, if you haven't already seen it.
+* [Essay - Locate and summarize source #1!](Essay1.md)
+* [Essay - Locate and summarize source #2!](Essay2.md)
+* [Essay - Locate and summarize source #3!](Essay3.md)
+* [Essay - Provide vital statistics!](Essay4.md)
+* [Essay - Identify accomplishments!](Essay5.md)
+* [Essay - Identify motivations!](Essay6.md)
+* [Essay - Identify multiple intelligences!](Essay7.md)
+* [Essay - Identify creative contributions!](Essay8.md)
+* [Essay - Write your paper!](Essay9.md)
+
+
+
+
+
+
 ## Final
 * [Self-Reflexive Final Exam](Final.md)
 
