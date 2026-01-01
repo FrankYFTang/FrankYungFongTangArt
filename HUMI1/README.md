@@ -4,3 +4,4 @@ I took HUMI 1 Creative Minds in De Anza College during Fall 2025 . This repo arc
 ## Forum
 * [Forum - Post your introduction here!](Forum1.md)
 * [Forum - Explore Creativity & Emotional Intelligence](Forum2.md)
+* [Forum - Forum - Explore Domains of Creativity](Forum3.md)
