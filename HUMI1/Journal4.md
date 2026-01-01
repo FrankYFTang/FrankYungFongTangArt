@@ -1,21 +1,19 @@
 ## Submission
 FREAK - “I'm a certified freak ten days a week”
 
-     "FREAK" is a song of Yuqi's first mini-album YUQ1 (Seon). The song was released with its music video on April 23, 2024 (Sayson). Yuqi is a member of the South Korean K-POP girl group I-dle, which first debuted as (G)I-dle under Cube Entertainment in 2018. The lyrics of the song were written by the collaboration of four: Yuqi, Audun Agnar Gludbrandsen, Kyle Faulkner, and Jop Pangemanan (“Yuqi - Freak Lyrics.”). 
+"FREAK" is a song of Yuqi's first mini-album YUQ1 (Seon). The song was released with its music video on April 23, 2024 (Sayson). Yuqi is a member of the South Korean K-POP girl group I-dle, which first debuted as (G)I-dle under Cube Entertainment in 2018. The lyrics of the song were written by the collaboration of four: Yuqi, Audun Agnar Gludbrandsen, Kyle Faulkner, and Jop Pangemanan (“Yuqi - Freak Lyrics.”). 
 
-     The lyric is a narrative about an unnamed female character. The singer called her a “certified freak”. The description is poetically exaggerated. For example, the singer thinks she behaves like a freak “ten days a week”, which ironically is impossible. The writer seems to strongly admire the figure because she “got me crazy” but also “got me weak”. The writer describes her as a “co-star baby”, which is a modern, pop-culture-infused expression of a strong romantic or infatuated connection. It is a direct nod to the Co-Star app, a famous astrology mobile app among Gen Z (Lines). The mention of “Libra”, the seventh astrological sign in the zodiac, in the next line strengthens such a connection. The author also refers to popular Asian terminology- such as “straight out a boba”. Boba milk tea is very popular in Asia, especially within Chinese audiences, where Yuqi came from. So “boba” also implied sweetness (Damayanti). But the author also tries to connect to the western audience, so she mentioned “Drew to my Barrymore” referring to the song "Drew Barrymore” sung by SZA released in 2017 (Koscelnik). 
+The lyric is a narrative about an unnamed female character. The singer called her a “certified freak”. The description is poetically exaggerated. For example, the singer thinks she behaves like a freak “ten days a week”, which ironically is impossible. The writer seems to strongly admire the figure because she “got me crazy” but also “got me weak”. The writer describes her as a “co-star baby”, which is a modern, pop-culture-infused expression of a strong romantic or infatuated connection. It is a direct nod to the Co-Star app, a famous astrology mobile app among Gen Z (Lines). The mention of “Libra”, the seventh astrological sign in the zodiac, in the next line strengthens such a connection. The author also refers to popular Asian terminology- such as “straight out a boba”. Boba milk tea is very popular in Asia, especially within Chinese audiences, where Yuqi came from. So “boba” also implied sweetness (Damayanti). But the author also tries to connect to the western audience, so she mentioned “Drew to my Barrymore” referring to the song "Drew Barrymore” sung by SZA released in 2017 (Koscelnik). 
 
-     There are many repetitions of the line “She's a certified freak. Ten days a week” in the lyrics. These repetition form the main theme of this song. In our modern society we think a week is by definition seven days and seven days only (Zerubavel). However, the French government actually used a calendar system called the French Revolution calendar, which has ten days in a week, between late 1793 to 1805 in France (Shaw). Also, in the Traditional calendar system used in Hawaii, they have a week like ten days period called “anahulu” (Schmitt). We are not sure if the author is referring to these two concepts in history or just simply an ironic expression as a synonym of “out of norm”.
+There are many repetitions of the line “She's a certified freak. Ten days a week” in the lyrics. These repetition form the main theme of this song. In our modern society we think a week is by definition seven days and seven days only (Zerubavel). However, the French government actually used a calendar system called the French Revolution calendar, which has ten days in a week, between late 1793 to 1805 in France (Shaw). Also, in the Traditional calendar system used in Hawaii, they have a week like ten days period called “anahulu” (Schmitt). We are not sure if the author is referring to these two concepts in history or just simply an ironic expression as a synonym of “out of norm”.
 
-     Another interesting observation about this song is the mention of car makers: “We don't need no Benz”, “She rides the moto like Mercedes”, and “Gonna test drive like a Honda Civic”. These vehicles function as metaphors in the song. I believe both Benz and Mercedes present high class and wealth while Honda Civic is a symbol for “fast” and “speed”, mentioned in the next line. 
+Another interesting observation about this song is the mention of car makers: “We don't need no Benz”, “She rides the moto like Mercedes”, and “Gonna test drive like a Honda Civic”. These vehicles function as metaphors in the song. I believe both Benz and Mercedes present high class and wealth while Honda Civic is a symbol for “fast” and “speed”, mentioned in the next line. 
 
-     The turning point of the song come close to the following two lines: “I've been on a throne Did you know that I'm a queen?” then the singer delivered the shocking truth “But little did I know that she's really me?” 
+The turning point of the song come close to the following two lines: “I've been on a throne Did you know that I'm a queen?” then the singer delivered the shocking truth “But little did I know that she's really me?” 
 
-     Yes, she is not singing about another person! She is singing about herself, from a third person’s angle to introduce herself to others as a “certified freak”. Now, after we listen to her singing till almost the end, she told us the truth- She is talking about herself “I'm a certified freak”. She is simply a narcissist - the way of her own move got herself crazy and weak! She felt “I'm a certified freak Ten days a week”. She finally admits she is the person described in the narrative. It is not a different person, but herself only. 
+Yes, she is not singing about another person! She is singing about herself, from a third person’s angle to introduce herself to others as a “certified freak”. Now, after we listen to her singing till almost the end, she told us the truth- She is talking about herself “I'm a certified freak”. She is simply a narcissist - the way of her own move got herself crazy and weak! She felt “I'm a certified freak Ten days a week”. She finally admits she is the person described in the narrative. It is not a different person, but herself only. 
 
-      Overall, I think this is a catchy song. I enjoy the melody and the song is not too hard to sing. I think the turning at the end of the song is really interesting.  
-
- 
+Overall, I think this is a catchy song. I enjoy the melody and the song is not too hard to sing. I think the turning at the end of the song is really interesting.  
 
 Works Cited
 
@@ -45,6 +43,7 @@ Zerubavel, Eviatar. The seven day circle: The history and meaning of the week. U
 
 Appendix A - The Lyrics of “Freak”
 
+```
 She's a certified freak
 
 Ten days a week
@@ -172,7 +171,7 @@ I'm a certified freak
 Certified freak 
 
 I'm a certified
-
+```
 ## Feedback
 Thanks for sharing your response! 
 
