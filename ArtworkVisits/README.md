@@ -101,10 +101,10 @@ This page lists links pointing to Museum and Art Galleries I visited:
 * [Hagia Sophia, Istanbul](https://photos.app.goo.gl/PTBphv2yqyfGtDce9), Turkey
 * [Hippodrome, Istanbul](https://photos.app.goo.gl/TuqRug4N2rRqe9KE8), Turkey
 * [Blue Mosque, Istanbul](https://photos.app.goo.gl/GnZbgvqnA4Kc3bx86), Turkey
-* [Bosphorus Boat Ride](https://photos.google.com/album/AF1QipOFUZCfGJa8hg1WAzwa8Qy31o0zZnEwXkbrS518), Turkey
-* [Chora Church / Kariye Mosque](https://photos.google.com/album/AF1QipNa03ish9SYim7GAakespx3sszOoocJ7bIfzLqH), Turkey
-* [Basilica Cistern](https://photos.google.com/album/AF1QipN-r-KVl8dhK8rFlW7sa0M2Q9QIwL_4b9a_Naq6), Turkey
-* [Archaeological Museum](https://photos.google.com/album/AF1QipOtkhqNSuz-i1RBnBhHUD6smUyLWYMzWFLymBMg), Turkey
+* [Bosphorus Boat Ride](https://photos.app.goo.gl/FyUkTU8JhtoGNnFr9), Turkey
+* [Chora Church / Kariye Mosque](https://photos.app.goo.gl/EuFcfzGwTqyFxA2u9), Turkey
+* [Basilica Cistern](https://photos.app.goo.gl/E9ZHAxf6n8hyyBYTA), Turkey
+* [Archaeological Museum](https://photos.app.goo.gl/hpPdPSjVgiuPQzHf8), Turkey
 ### Cappadocia / Konya toward Antalya
 * [Göreme Open Air Museum (underground city) + Uçhisar castle](https://photos.app.goo.gl/SNfpRTTYhJV1KwXu6), Turkey
 * [Mevlana Museum (Mystic Rumi)](https://photos.app.goo.gl/7VWcXZwDBC62VVS2A), Turkey
