@@ -5,7 +5,7 @@ This directory contains the Chinese Poems written by Frank Yung-Fong Tang. The p
 <summary>2026年</summary>
 
 - [2026年二月（？首）](./2026-02.md)
-
+- [2026年一月（3首）](./2026-01.md)
 </details>
 
 <details>
