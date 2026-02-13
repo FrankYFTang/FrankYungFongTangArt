@@ -2,8 +2,15 @@ This directory contains the Chinese Poems written by Frank Yung-Fong Tang. The p
 
 本目錄下收集 譚永鋒/且鈍 所著中文詩詞，各詩按寫詩年月分類歸檔文，文檔內詩文以"晚前早後"的反時間排序。
 <details open>
-<summary>2024年</summary>
+<summary>2026年</summary>
 
+- [2026年二月（？首）](./2026-02.md)
+
+</details>
+
+<details>
+<summary>2024年（共15首）</summary>
+  
 - [2024年四月（9首）](./2024-04.md)
 - [2024年三月（5首）](./2024-03.md)
 - [2024年一月（1首）](./2024-01.md)
