@@ -1,6 +1,85 @@
 # ART 2F Introduction To Asian Art
 I took  ART 2F Introduction To Asian Art in Foothill College during Winter 2026. This repo archived my work for this course. My professor is Cynthia Brannvall.
 
+
+# Research Essay Assignment
+
+# Research Activity 1 What is your topic?
+### Submission
+Yayoi Kusama
+
+I personally took photos of her six artworks at The Broad (Los Angles), Hirshhorn (DC), Sotheby's (New York), and SFMoMA (San Francisco) before. I think that gave me enough primary sources (see links below). And I think it should be enough English paper about her works. 
+
+https://photos.app.goo.gl/1yPx8pZCyitEvQ4X7
+### Feedback 20/20
+Great topic choice. Yes, there is plenty of scholarship on this artist. 
+
+## Research Activity  2 Assignment: What Are Your Sources?
+### Submission
+
+1. What information in the seminar library modules was most useful and why?
+The “Find Images” module is very useful for me to find artworks which are hard to locate on the
+web. I found it is hard to locate contemporary artworks on the Google web search or image
+search because often the results are mixed with mimic works or images in low resolutions.
+2. Please list 3 peer reviewed academic sources in MLA or Chicago Style format for your
+project. Do not submit images for this assessment.
+Works Cited
+Bell, David. "The beautiful stars at night: the glittering artistic world Yayoi Kusama." New
+Zealand Journal of Asian Studies 12.2 (2010): 81-106.
+Davis, Anna Isabel. "Yayoi Kusama’s Depictions of Mental Health." Butler Journal of
+Undergraduate Research 10.1 (2024): 16.
+Guo, Qing. "Mirror Room (Pumpkin)—Yayoi Kusama’s Psychological Space." Art and Design
+Review 7.01 (2018): 22.
+Jerreat-Poole, Adan, and Sarah Brophy. "Encounters with Kusama: disability, feminism, and the
+mediated Mad art of# InfiniteKusama." Feminist Media Studies 21.6 (2021): 905-922.
+TANG 2
+Kusama, Yayoi. Infinity net: the autobiography of Yayoi Kusama. Tate Enterprises Ltd, 2021.
+Lee, Soojin. "The art and politics of artists' personas: The case of Yayoi Kusama." Persona
+Studies 1.1 (2015): 25-39.
+Suma, K. V., Suhas Chandran, and TS Sathyanarayana Rao. "The princess of polka dots: Using
+art as a medium to cope with hallucinations." Indian Journal of Psychiatry 60.1 (2018):
+156-158.
+
+
+### Feedback 20/20
+Excellent. Sometimes Jstor has higher quality photos but we can also find good images through internet searches. I always check the pixels. Wiki images can be another good source for high quality images. It is ok to use Wiki for images. 
+
+## Research Activity 3 Assignment: What is your thesis statement?
+### Submission
+What is the guiding question for your research paper?
+What motivated Yayoi Kusama to create her artworks? What remains common and constant in all her art and how have they evolved over time?
+
+How can your guiding question be rephrased as a thesis?
+Polka Dots appeared in most of Yayoi Kusama’s artwork, in different sizes and presentations.
+
+What is going well in your paper?
+I found many great sources and artworks, and found some very interesting points about her work.  
+
+What are challenges in your paper?
+I wrote a lot of observations and did some great analysis and now the first draft of my paper is 11 pages / 3,433 words long with another 26 sources in the Works Cited page and 24 images in the Illustrations section. I am not sure if I should cut out some content to make it shorter or keep it as is in the first draft.
+### Feedback 17 / 20
+I would like to see you write a stronger thesis. This sounds like all of your research will be based on the polka dot. 
+
+Consider revising the statement to include motivations of trauma and or the fine line she evokes between anxiety and oblivion with infinity. Or you could focus on the intersection of art and disability. 
+
+You want to give the reader a sense of the scholarship they can anticipate in the analysis. 
+
+
+## Research Activity Research Essay Assignment
+### Submission
+### Feedback - / 200
+
+#### March 20:
+I am doing a preliminary sweep to look for significant errors. The paper will be graded after the term ends.  Students may make improvements until 03-27.
+
+0% AI report ☺️. Meets the word count requirement.
+
+Strong sources and correct citation format. There are a few entries that don't have an author, please review and make sure the author is not listed. If there is, be sure to include the author in the entry.
+
+I look forward to reading your paper!
+
+# Weekly Wrting
+
 ## Week 1 Practice Visual Literacy Skills
 ### Prompt
 Yin Hong, Hundreds of Birds Admiring the Peacocks, Ming dynasty, late 15th century.
@@ -345,12 +424,7 @@ Weaver, Matthew. “Banksy Confirms Piranhas Are His Seventh Animal Artwork in L
 ### Feedback 10/10
 Thank you for this thoughtful and thorough response. It sounds like you have learned a lot about visual literacy.
 
-### Research Essay Assignment
-### Prompt
- 
-### Submission
 
-### Feedback 
 
 ## Week 10 Write About It
 ### Prompt
