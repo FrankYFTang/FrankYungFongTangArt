@@ -67,8 +67,9 @@ You want to give the reader a sense of the scholarship they can anticipate in th
 
 ## Research Activity Research Essay Assignment
 ### Submission
-### Feedback - / 200
 
+[Polka Dots in Yayoi Kusama’s Works: Pumpkins and Infinite Mirrored Rooms](https://docs.google.com/document/d/1FOUe27nFWO2LHzs5EIPFlPMniPaqtXt6WZrQfvngSLc)
+### Feedback 200 / 200
 #### March 20:
 I am doing a preliminary sweep to look for significant errors. The paper will be graded after the term ends.  Students may make improvements until 03-27.
 
@@ -77,6 +78,12 @@ I am doing a preliminary sweep to look for significant errors. The paper will be
 Strong sources and correct citation format. There are a few entries that don't have an author, please review and make sure the author is not listed. If there is, be sure to include the author in the entry.
 
 I look forward to reading your paper!
+#### Mar 31 at 2:23pm
+Excellent discussion of the origins of Kusama's pumpkin motif. This is your thesis and should be stated earlier in the paper. Excellent synthesis of source material that allows the reader to fully understand the depth of the motif. 
+
+Beautifully written with attentive descriptions to the details of the artwork. The analysis is supported by strong scholarship. The constructive feedback I have is to anchor the analysis to a clear and cohesive thesis. The thesis is the point of view that you are arguing and tethering to the artworks as primary sources. There is a tendency to describe works of art and then offer interpretation. These can be more directly connected. Think of the descriptions of the artworks as the visual descriptive evidence that supports your interpretation. 
+
+Always a pleasure to read. 
 
 # Weekly Wrting
 
