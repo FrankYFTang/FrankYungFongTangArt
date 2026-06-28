@@ -29,7 +29,7 @@ Below are links to some arts I made since 2018
 ![Self Portrait 10](https://lh3.googleusercontent.com/pw/AL9nZEWKE6eGwOl-_GrnjLhdXG5WHdUDSoToZXJWxYFGN9iB27xHYf6pBH2jKDSCRmdO3M4MybJ8WbDVEELGYSeJ4iGwpmTorGOJ0Y_lVpHtkevCW_4xFpQfSTLRSP94uhtrF2mkbWw8p6H0mjtrR6A0W1SYjg=h150-no)
 ![Self Portrait 11](https://lh3.googleusercontent.com/pw/AL9nZEUi9e2gNXDDQgG3eDN2uyjQBnH-0jdFmE-BqK1Yjk0AmqDx1Nmdk5nIHUY-hl47VwGccNUarwCAG7brB5TcAmAeHz6fppsrsTwoxTFMwgIh3sLxoO_rXVR2OO5RvBsEHkD52yQil_Iy8N-5QuTraINcmg=h150-no)
 
-## Art Papers and Art Work Submission for Courses took in De Anza College
+## Art History Classes in De Anza College
 * [ARTS 2G History of Art: Arts of Asia](ARTS2G) (Summer 2022)
 * [ARTS 2F History of Art (Multicultural Arts in the U.S.)](ARTS2F) (Summer 2022)
 * [ARTS 2B History of Art: Europe During the Middle Ages and the Renaissance](ARTS2B) (Fall 2022)
@@ -37,31 +37,35 @@ Below are links to some arts I made since 2018
 * [ARTS 1B Architecture Past and Present](ARTS1B) (Winter 2023)
 * [ARTS 2A History of Art: Europe from Prehistory through Early Christianity](ARTS2A) (Winter 2023)
 * [ARTS 2D History of Art: Europe and the United States from Post-Impressionism to the Present](ARTS2D) (Winter 2023)
-* [ARTS 8 Two-Dimensional Design](ARTS8) (Winter 2023)
 * [ARTS 2C History of Art: Europe from the Baroque Period Through Impressionism](ARTS2C) (Spring 2023)
 * [ARTS 4A Beginning Drawing](ARTS4A) (Spring 2023)
 * [ARTS 2J History of Art: Arts of Africa, Oceania and Native North America](ARTS2J) (Fall 2023)
 * [ARTS 4B Intermediate Drawing](ARTS4B) (Fall 2023)
+* [ARTS 3TE Today's Art Scene](ARTS3TE) (Spring 2025)
+
+## Art Classes in De Anza College
+
+* [ARTS 8 Two-Dimensional Design](ARTS8) (Winter 2023)
 * [ARTS 12 Design and Color](ARTS12) (Winter 2024)
 * [ARTS 54 Introduction to Graphic Design: Digital Imaging](ARTS54) (Spring 2024)
 * [PHTG 4 Introduction to Digital Photography](PHTG4) (Spring 2024)
 * [PHTG 7 Exploring Visual Expression](PHTG7) (Fall 2024)
-* [ARTS 15 Discussion on the Arts](ARTS12) (Fall 2024)
-* [ARTS 3TE Today's Art Scene](ARTS3TE) (Spring 2025)
 
-## Art Papers and Art Work Submission for Courses took in Foothill College
+## Art Classes in Foothill College
 * [ART 47A Watercolor I](ART47A) (Summer 2024)
 * [ART 19A Oil Painting I](ART19A) (Fall 2024)
 * [ART 4C Representational Drawing](ART4C) (Winter 2025)
 * [ART 20 Color Theory](ART20) (Winter 2025)
 * [ART 47B Watercolor II](ART47B) (Spring 2025)
-* [ART 2G Introduction to Islamic Art](ART2G) (Spring 2025)
 * [ART 70R Independent Study in Art](ART70R) (Summer 2025)
-* [ART 1 Introduction to Art](ART1) (Fall 2025)
 * [ART 19C Oil Painting II](ART19C) (Fall 2025)
 * [ART 71R Independent Study in Art](ART71R) (Fall 2025)
-* [ART 2F Introduction to Asian Art](ART2F) (Winter 2026)
 * [ART 19B Arcylic Painting I](ART19B) (Winter 2026)
+
+## Art History Classes in Foothill College
+* [ART 2G Introduction to Islamic Art](ART2G) (Spring 2025)
+* [ART 1 Introduction to Art](ART1) (Fall 2025)
+* [ART 2F Introduction to Asian Art](ART2F) (Winter 2026)
 
 ## Papers Submission for Other Courses took in De Anza College
 * [ECON 1 Principles of Macroeconomics](ECON1) (Spring 2013)
