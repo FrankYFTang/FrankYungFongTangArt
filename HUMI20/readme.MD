@@ -2,9 +2,11 @@
 I took HUMI 20 The Greek Achievement in De Anza College during Spring 2026 (April 6 - June 26, 2026). This repo archived my work for this course. My professor was Rashi Jackman.
 
 ## Comparing the Greeks with their neighbors
-30/30
-## First weekly reflection
-30/30
+### 30/30
+### Prompt: 
+Based on the this week's readings, the film, and the PPTs, in what ways was the Bronze Age Greek world similar to the cultures around it and how was it different?  Please share your thoughts with the class, first as a post, and then as two responses to the posts of your peers.  I will keep the discussion open until Sunday evening.
+
+
 
 In this essay we compare and contrast the Bronze Age Greek cultures with those around it. The Bronze Age Greek cultures consist of three different civilizations: Cycladic , Minoan, and Mycenaean. The cultures around the Bronze Age Greek include those in Mesopotamia, Anatolia, and Egypt. These cultures were similar in their usage of bronze, their social hierarchy, polytheistic religious systems, and the development of writing systems but differ in how their religious impact their power structure and the source of their economic foundation- river vs sea. 
 
@@ -14,7 +16,7 @@ For the differences between them: First, Greeks never “put temples and the pri
 
 We can see Greeks are similar to their surrounding cultures in Egypt and Mesopotamia but yet unique. They all start to develop the use of bronze, live in a class system based social hierarchy, worship polytheistic deities, and record by using writing systems. But their religions have different positions in their society and their economic sources were built from sea rather than from the flooding of rivers.
 
-### Works Cited
+#### Works Cited
 
 Colum, Padraic “Osiris and Isis Ancient Egyptian Myth” Sp26 HUMI D020 50Z The Greek Achievement, deanza.instructure.com/courses/45717/files/15389983 Accessed 5 April. 2026.
 
@@ -26,3 +28,7 @@ Pomeroy, Sarah B., et al. Ancient Greece: a political, social, and cultural hist
 
 “The World of the Greeks.” Sp26 HUMI D020 50Z The Greek Achievement, deanza.instructure.com/courses/45717/files/15389984 Accessed 5 April. 2026.
 
+
+
+## First weekly reflection
+30/30
