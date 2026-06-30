@@ -1,5 +1,5 @@
-# ARTS 1A Intro To Visual Arts 
-I took Intro To Visual Arts in De Anza College during Spring 2026 (April 6 - June 26, 2026). This repo archived my work for this course. My professor was Elizabeth Mjelde, Ph.D.
+# ARTS 1A Introduction To Visual Arts 
+I took Introduction To Visual Arts in De Anza College during Spring 2026 (April 6 - June 26, 2026). This repo archived my work for this course. My professor was Elizabeth Mjelde, Ph.D.
 
 ## Paper Proposal (Analysis Paper Part 1)
 ### Sumission
