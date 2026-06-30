@@ -42,7 +42,8 @@ Below are links to some arts I made since 2018
 * [ARTS 2J History of Art: Arts of Africa, Oceania and Native North America](ARTS2J) (Fall 2023)
 * [ARTS 4B Intermediate Drawing](ARTS4B) (Fall 2023)
 * [ARTS 3TE Today's Art Scene](ARTS3TE) (Spring 2025)
-
+* [ARTS 1A Introduction To Visual Arts](ARTS1A) (Spring 2026)
+  
 ## Art Classes in De Anza College
 
 * [ARTS 8 Two-Dimensional Design](ARTS8) (Winter 2023)
