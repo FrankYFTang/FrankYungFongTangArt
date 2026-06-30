@@ -23,6 +23,13 @@ I very much enjoyed reading your essay!
 ### Submission
 [How Painters Motivate their Viewers toward God in Direct, Indirect and Subtle Manners](https://docs.google.com/document/d/1MH0c7li0E_l5FCRjjraKzHiGdBneQKvr3brycpcwztA/edit?usp=sharing)
 
-### Feedback 
+### Feedback 28/30
+I very much appreciate the opportunity to read your insights about these works of art. When writing a final exam, don't forget or neglect to address the prompt explicitly and in detail.
+2/3 Introduction
+3/3 Conclusion
+9/9 Detailed analysis of three works of art discussed in our Topic presentations
+9/9 Use of three Primary Source Documents from our course modules
+3/3 Clarity
+2/3 Thoroughness
 
 
