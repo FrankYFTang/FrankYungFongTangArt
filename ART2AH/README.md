@@ -176,6 +176,13 @@ Strong response. The comments demonstrate an attentive engagement with this week
 I am doing a preliminary sweep to look for significant errors. The paper will be graded after the term ends.  Students may make improvements until 6/26/2026.
 I don't see any issues and I am excited to read this!
 
+## Final Essay
+### Submission
+[The Forming of the Theotokos Icon: The Shifted Image of Mary from a Nursing Mother to a Sitting Queen](https://docs.google.com/document/d/1A6VuP_bzx7cDCYwGyq7vALVzkXNkRZmI_yL8Ol7gU4g/edit?usp=sharing)
+### Feedback 50/50
+Excellent. Strong response demonstrating an attentive engagement with the course content. Good engagement with the art as a primary source, use of key terms and incorporation of the historical contexts.
+Wonderful to see you incorporate cited references to the reading to support your claims.
+
 
 
 
