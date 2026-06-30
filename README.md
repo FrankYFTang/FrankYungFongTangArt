@@ -62,12 +62,15 @@ Below are links to some arts I made since 2018
 * [ART 19C Oil Painting II](ART19C) (Fall 2025)
 * [ART 71R Independent Study in Art](ART71R) (Fall 2025)
 * [ART 19B Arcylic Painting I](ART19B) (Winter 2026)
+* [ART 5B 3-D Foundations](ART5B) (Spring 2026)
+* [ART 19G Outdoor Landscape Painting](ART19G) (Spring 2026)
 
 ## Art History Classes in Foothill College
 * [ART 2G Introduction to Islamic Art](ART2G) (Spring 2025)
 * [ART 1 Introduction to Art](ART1) (Fall 2025)
 * [ART 2F Introduction to Asian Art](ART2F) (Winter 2026)
-
+* [ART 2AHHonors History Art:West Prehist-Early Christianity](ART2AH) (Spring 2026)
+* 
 ## Papers Submission for Other Courses took in De Anza College
 * [ECON 1 Principles of Macroeconomics](ECON1) (Spring 2013)
 * [ECON 2 Principles of Microeconomics](ECON2) (Fall 2013)
