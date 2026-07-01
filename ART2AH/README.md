@@ -172,9 +172,11 @@ Strong response. The comments demonstrate an attentive engagement with this week
 ## Research Essay
 ### Submission
 [Library of Celsus in Ephesus, Turkey](https://docs.google.com/document/d/1LBrTBwEXI_sKFlMrIm5iEkX9lbylVw7hj0F3wHikIgo/edit?usp=sharing)
-### Feedback  
+### Feedback  A
 I am doing a preliminary sweep to look for significant errors. The paper will be graded after the term ends.  Students may make improvements until 6/26/2026.
 I don't see any issues and I am excited to read this!
+
+Strong paper that is beautifully written, supported by strong scholarship with an excellent engagement with the formal elements of the art and the historical and cultural contexts. Excellent examples.
 
 ## Final Essay
 ### Submission
