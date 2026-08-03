@@ -38,21 +38,21 @@ Below are links to some arts I made since 2018
 * [ARTS 2A History of Art: Europe from Prehistory through Early Christianity](ARTS2A) (Winter 2023)
 * [ARTS 2D History of Art: Europe and the United States from Post-Impressionism to the Present](ARTS2D) (Winter 2023)
 * [ARTS 2C History of Art: Europe from the Baroque Period Through Impressionism](ARTS2C) (Spring 2023)
-* [ARTS 4A Beginning Drawing](ARTS4A) (Spring 2023)
 * [ARTS 2J History of Art: Arts of Africa, Oceania and Native North America](ARTS2J) (Fall 2023)
-* [ARTS 4B Intermediate Drawing](ARTS4B) (Fall 2023)
 * [ARTS 3TE Today's Art Scene](ARTS3TE) (Spring 2025)
 * [ARTS 1A Introduction To Visual Arts](ARTS1A) (Spring 2026)
   
-## Art Classes in De Anza College
+## Visual Art Classes in De Anza College
 
 * [ARTS 8 Two-Dimensional Design](ARTS8) (Winter 2023)
+* [ARTS 4A Beginning Drawing](ARTS4A) (Spring 2023)
+* [ARTS 4B Intermediate Drawing](ARTS4B) (Fall 2023)
 * [ARTS 12 Design and Color](ARTS12) (Winter 2024)
 * [ARTS 54 Introduction to Graphic Design: Digital Imaging](ARTS54) (Spring 2024)
 * [PHTG 4 Introduction to Digital Photography](PHTG4) (Spring 2024)
 * [PHTG 7 Exploring Visual Expression](PHTG7) (Fall 2024)
 
-## Art Classes in Foothill College
+## Visual Art Classes in Foothill College
 * [ART 47A Watercolor I](ART47A) (Summer 2024)
 * [ART 19A Oil Painting I](ART19A) (Fall 2024)
 * [ART 4C Representational Drawing](ART4C) (Winter 2025)
@@ -70,7 +70,7 @@ Below are links to some arts I made since 2018
 * [ART 1 Introduction to Art](ART1) (Fall 2025)
 * [ART 2F Introduction to Asian Art](ART2F) (Winter 2026)
 * [ART 2AH Honors History Art:West Prehist-Early Christianity](ART2AH) (Spring 2026)
-* 
+ 
 ## Papers Submission for Other Courses took in De Anza College
 * [ECON 1 Principles of Macroeconomics](ECON1) (Spring 2013)
 * [ECON 2 Principles of Microeconomics](ECON2) (Fall 2013)
