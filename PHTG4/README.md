@@ -1,5 +1,5 @@
 # PHTG 4 Introduction to Digital Photography
-I took PHTG 4 Introduction to Digital Photography in De Anza College during Spring 2023 (April - June, 2024). This repo archived my work for this course. My professor was Sean K. Peeler.
+I took PHTG 4 Introduction to Digital Photography in De Anza College during Spring 2024 (April - June, 2024). This repo archived my work for this course. My professor was Sean K. Peeler.
 ## Assignment 1 Alphabetography
 * [Submission](https://photos.app.goo.gl/V4e6M6RSj2uuHgUT7)
 ## Assignment 2 Organizing Chaos
